@@ -1,542 +1,533 @@
 ## Abkhazia
 
-- Abkhazia's Black Sea coastline made it one of the Soviet Union's premier subtropical resort destinations, with beach towns like Sukhumi and Gagra once drawing vacationers from across the USSR.
-- Its population collapsed from roughly 525,000 before the 1992-93 war to an estimated 240,000 or fewer today, reshaping the territory's ethnic makeup.
+- Abkhazia's Black Sea beaches drew about 40 percent of the Georgian Soviet republic's tourism market in the Soviet era, with Sukhumi and Gagra remaining its most popular resort towns.
+- Its population fell from 525,061 in the 1989 census to 240,705 in the 2011 census after the 1992-93 war and the expulsion of most of its Georgian population.
 - **History:** A 1992-1993 war between Abkhaz and Georgian government forces ended with Abkhazia gaining de facto control of the territory; Russia formally recognized it as independent in 2008 after the Russia-Georgia war.
-- **Culture:** Abkhaz cuisine centers on maize-based staples like abista, and hospitality customs include elaborate multi-toast feasts accompanied by locally made wine.
-- **Politics:** Abkhazia is recognized as an independent state by a small number of UN member states, including Russia; it is administered de facto by its own government based in Sukhumi, while Georgia and most of the international community consider it part of Georgia's sovereign territory.
-- **Local pride:** Residents commonly take pride in their distinct Abkhaz language and identity, and in the region's fertile land and citrus groves.
+- **Culture:** Abkhaz cuisine includes abysta, a porridge made of corn, and the territory produces wine, tea, tangerines and hazelnuts.
+- **Politics:** Four UN member states (Russia, Venezuela, Nicaragua and Syria) recognise Abkhazia as independent; it has its own de facto government in Sukhumi, while Georgia regards it as part of its territory.
+- **Local pride:** Abkhaz speakers take pride in their language, which has 58 consonants in its literary dialect but only two phonemic vowels.
 
 ## Abyei Area
 
 - Abyei is a contested area of roughly 10,000 square kilometres on the border between Sudan and South Sudan.
 - Ngok Dinka cattle-keepers live there year-round, while Misseriya herders traditionally move through it with their cattle in the dry season.
 - **History:** Abyei was given a special administrative status by the 2005 Comprehensive Peace Agreement, and in 2009 the Permanent Court of Arbitration in The Hague ruled on the area's boundaries.
-- **Culture:** Cattle are central to Ngok Dinka life, figuring in marriage payments, songs and social standing, and the community speaks a Dinka language.
+- **Culture:** Among the Dinka, to whom the Ngok Dinka belong, cattle serve as bridewealth in marriage and owning them brings wealth and standing.
 - **Politics:** Abyei is claimed by both Sudan and South Sudan and has special administrative status pending a final settlement; the UN Interim Security Force for Abyei (UNISFA) has been deployed there since 2011, and the referendum foreseen in 2005 has not been held.
-- **Local pride:** Residents take pride in their long pastoral way of life, in which communities have shared grazing land and water across generations.
+- **Local pride:** The Ngok Dinka, the area's permanent residents, take pride in speaking Dinka, their own language.
 
 ## Afghanistan
 
-- Afghanistan is home to more than a dozen major ethnic groups and dozens of languages, with Dari and Pashto serving as the two official languages.
-- The country sits on an estimated trillion dollars' worth of largely untapped lithium and rare-earth mineral deposits, a resource base that has drawn international attention for decades.
-- **History:** Following the September 11, 2001 attacks, a US-led coalition removed the Taliban from power; the Taliban returned to govern the country in August 2021 after the withdrawal of international forces.
-- **Culture:** Buzkashi, a horseback game in which riders compete to drag a goat or calf carcass toward a goal, is widely regarded as Afghanistan's national sport.
-- **Politics:** Since 2021 Afghanistan has been governed by the Taliban as a de facto authority organized as an Islamic Emirate, without an elected parliament or internationally ratified constitution, and it is not formally recognized as the government by most UN member states.
-- **Local pride:** Afghans commonly take pride in a deep-rooted culture of hospitality toward guests and a reputation for resilience through decades of hardship.
-
-## Agaléga
-
-- Agaléga consists of two small islands, North and South, lying roughly 1,000 kilometres north of Mauritius, which governs them.
-- The islands have only a few hundred residents, and a new airstrip and jetty built with Indian assistance were inaugurated in 2024.
-- **History:** Agaléga was settled in the colonial era as a coconut plantation worked by enslaved and later indentured labour, and it passed to Britain along with Mauritius in 1810.
-- **Culture:** Islanders speak a form of Creole and have long made coconut products such as copra and oil the basis of the local economy and food.
-- **Politics:** Agaléga is part of the Republic of Mauritius as one of its outer islands and is administered from the main island of Mauritius.
-- **Local pride:** Residents are proud of their close-knit, self-reliant island community, built on coconut farming and fishing far from the mainland.
+- Dari and Pashto are Afghanistan's two official languages.
+- In 2010 US and Afghan officials estimated the country's untapped mineral deposits at $1 trillion or more, including lithium, and rare earth elements are reported at the Khanashin carbonatite in Helmand Province.
+- **History:** A United States invasion in 2001 overthrew the Taliban's earlier emirate, and the Taliban returned to power on 15 August 2021 when they captured Kabul.
+- **Culture:** Buzkashi, a horseback game in which riders try to carry a carcass into a goal zone, is the national sport of Afghanistan; a calf is normally used, and a goat only when no calf is available.
+- **Politics:** As of July 2025 Afghanistan is governed by the Taliban as an Islamic emirate with no legislature, its 2004 constitution having been abolished, and Russia is the only country to have recognised it as the de jure government.
+- **Local pride:** Afghans take pride in their national cricket team, whose best Men's T20 World Cup result is a semi-final place in 2024.
 
 ## Akrotiri and Dhekelia
 
 - Akrotiri and Dhekelia are two British military base areas on Cyprus that together cover about 254 square kilometres.
-- Thousands of Cypriots live in villages inside the base areas, which also contain farmland, in addition to British service personnel and their families.
+- About 11,000 Cypriots work in the base areas or on farmland within them, and about 60% of the land is privately owned freehold by Cypriot citizens.
 - **History:** The two Sovereign Base Areas were retained by the United Kingdom under the 1960 Treaty of Establishment when Cyprus became independent.
-- **Culture:** Cypriot communities in the base-area villages keep Greek Cypriot traditions such as Orthodox Easter observances and a farming life centred on citrus, vegetables and olives.
-- **Politics:** The areas are a British Overseas Territory governed under the 1960 Treaty by an Administrator, who is also the military commander, and the Sovereign Base Areas Administration, with laws that largely mirror those of the Republic of Cyprus; the Republic of Cyprus and the UK have differing views on the long-term arrangement.
-- **Local pride:** Residents of the villages are proud of their farming tradition and tight-knit communities, which have continued on the same land through the changes of the base era.
+- **Culture:** The Sovereign Base Areas' boundaries were deliberately drawn to avoid centres of population, and some Greek Cypriot refugees remain housed in Trachoni and Kolossi.
+- **Politics:** The areas are a British Overseas Territory whose Administrator is also the Commander of British Forces Cyprus, with a legal system based on the laws of the Colony of Cyprus as of August 1960 that are closely aligned with those of the Republic of Cyprus.
+- **Local pride:** Cypriot owners hold about 60% of the base areas' land as private freeholds, and local Cypriots protested in 2001 over planned radio masts there.
 
 ## Albania
 
-- Albania is dotted with an estimated 170,000 concrete bunkers built under communist rule as part of a nationwide defense program, giving it more bunkers per capita than almost any country on earth.
-- In 1967 Albania's communist government declared it the world's first officially atheist state, banning religious practice until reforms restored freedom of worship in 1990.
-- **History:** Albania declared independence from the Ottoman Empire in 1912, ending nearly five centuries of Ottoman rule.
+- About 173,000 concrete bunkers had been scattered across Albania by 1983, built under communist rule to guard against external invasion.
+- A violent campaign against religion began in Albania in 1967, the 1976 constitution made it the world's first constitutionally atheist state, and the ban on religious observance was lifted in December 1990.
+- **History:** Albania declared independence from the Ottoman Empire on 28 November 1912.
 - **Culture:** Albanian iso-polyphonic singing, a multipart vocal tradition recognized by UNESCO, remains widely practiced, alongside the traditional besa code of honor emphasizing one's given word.
 - **Politics:** Albania is a parliamentary republic in which the president, elected by parliament rather than by popular vote, holds a largely ceremonial role while executive power rests with the prime minister.
-- **Local pride:** Albanians widely take pride in a tradition of hospitality toward guests, and in accounts of Albanian families sheltering Jewish refugees during World War II.
+- **Local pride:** Albanians widely take pride in the country's World War II record of sheltering Jewish refugees, with Albania's Jewish population reportedly larger after the war than before it.
 
 ## Algeria
 
 - Algeria is Africa's largest country by land area, covering more than 2.3 million square kilometers, most of it Sahara desert.
 - Algeria fought an eight-year war of independence against France from 1954 to 1962 that claimed hundreds of thousands of lives before ending French colonial rule.
-- **History:** After independence, Algeria was governed for decades under one-party rule by the National Liberation Front (FLN), and in the 1990s the country endured a civil war between the government and Islamist insurgents that killed an estimated 150,000 to 200,000 people.
+- **History:** After independence, Algeria was governed as a one-party state by the National Liberation Front (FLN) until other parties were legalised in 1989, and a civil war in the 1990s between the government and Islamist insurgents is estimated to have killed anywhere from about 44,000 to 150,000 people.
 - **Culture:** Raï music, which originated in the port city of Oran, blends traditional Algerian folk sounds with Western instrumentation and has become an internationally recognized genre.
-- **Politics:** Algeria is a semi-presidential republic in which the president holds substantial executive authority, and the military has historically exercised significant influence over political life behind the scenes.
-- **Local pride:** Algerians widely take pride in a strong tradition of hospitality and mint tea culture, and in the country's blended Amazigh (Berber) and Arab heritage.
+- **Politics:** Algeria is a republic with a president elected for a five-year term renewable once under the constitution adopted in 2020, and a parliament of two chambers, the People's National Assembly and the Council of the Nation.
+- **Local pride:** Algerians take pride in their national football team, which has won the Africa Cup of Nations twice, in 1990 on home soil and in 2019 in Egypt.
 
 ## American Samoa
 
 - American Samoa is the only populated United States territory south of the equator.
-- Tuna canning is a major private employer, and the territory has produced a remarkably high number of professional American football players for its size.
+- Tuna products are the territory's main exports, and by 2010 it had produced 28 players who reached the NFL.
 - **History:** Tutuila's chiefs ceded their island to the United States in 1900, and the Manu'a islands followed in 1904.
-- **Culture:** Fa'a Samoa, the Samoan way, shapes daily life through chiefly titles (matai), extended-family obligations and the ceremonial 'ava drink.
+- **Culture:** Fa'a Samoa shapes daily life through the matai, chiefs who lead extended families ('aiga), and ceremonies such as the kava ceremony.
 - **Politics:** American Samoa is an unincorporated, unorganized territory of the United States with its own constitution, an elected governor and a legislature called the Fono; residents are US nationals and elect a non-voting delegate to Congress.
-- **Local pride:** Residents are proudest of fa'a Samoa, the living system of family, chiefly title and communal land that most land in the territory is still held under.
+- **Local pride:** Residents celebrate Flag Day each 17 April with fautasi longboat races, in which crews of up to 50 row boats about 30 metres long.
 
 ## Andorra
 
 - Andorra is one of the few states in the world with two simultaneous heads of state, known as co-princes: the President of France and the Spanish Bishop of Urgell.
-- Andorra has no standing army and consistently ranks among the countries with the lowest crime rates in Europe.
+- Andorra has no army of its own; its defence is the responsibility of neighbouring France and Spain.
 - **History:** Andorra's unusual co-principality arrangement traces back to a 1278 pareage agreement that settled a feudal dispute between the Count of Foix and the Bishop of Urgell.
-- **Culture:** Andorra marks its National Day, the Diada de Meritxell, on September 8 in honor of the country's patron saint, with festivities held across its parishes.
+- **Culture:** Andorra's national day, 8 September, is Our Lady of Meritxell Day.
 - **Politics:** Andorra is a parliamentary co-principality with a unicameral legislature, the General Council; it did not adopt a written constitution until 1993, the same year it joined the United Nations.
-- **Local pride:** Andorrans generally take pride in their small nation's independence, mountain way of life, and long tradition as a low-tax trading hub between France and Spain.
+- **Local pride:** Andorrans take pride in Catalan being their country's sole official language.
 
 ## Angola
 
-- Angola is one of the world's leading diamond and crude oil producers, resources that have driven its economy despite decades of conflict.
-- Portuguese is Angola's official language, yet dozens of Bantu languages such as Umbundu and Kimbundu are widely spoken in daily life.
+- Oil and diamonds have been Angola's most important economic resources since independence, and it produced an average of 1.165 million barrels of oil per day in 2022.
+- Portuguese is Angola's official language, while Bantu languages such as Umbundu and Kimbundu are national languages.
 - **History:** Angola gained independence from Portugal in 1975, after which a civil war between rival liberation movements lasted until 2002.
-- **Culture:** Kizomba, a slow, sensual partner dance and music genre, originated in Angola in the 1980s and has since spread across Africa, Europe, and Latin America.
-- **Politics:** Angola is a presidential republic in which the MPLA party has governed continuously since independence in 1975.
-- **Local pride:** Angolans commonly take pride in their resilience in rebuilding after decades of civil war and in beloved dishes like muamba de galinha, a chicken stew central to family gatherings.
+- **Culture:** Kizomba, a dance and music genre blending Angolan semba with Antillean zouk, emerged in Angola in the late 1970s to early 1980s and is now danced across Africa, Europe and beyond.
+- **Politics:** The MPLA has been Angola's ruling party since independence in 1975 and remained dominant in the 2022 elections.
+- **Local pride:** Angolans take pride in muamba de galinha, a chicken and palm-butter stew considered the national dish of Angola.
 
 ## Anguilla
 
 - Anguilla is a flat, eel-shaped coral island about 26 kilometres long, and its name is thought to derive from the word for eel.
-- Anguilla is a British Overseas Territory and uses the Eastern Caribbean dollar.
+- About 15,750 people lived on Anguilla in 2021 (a UN population estimate, not a census count), on an island of roughly 91 square kilometres.
 - **History:** In 1967 Anguillans rejected rule from Saint Kitts and expelled its police force, and after a British intervention in 1969 Anguilla formally became a separate British dependency in 1980.
-- **Culture:** Sailing-boat racing is the national sport, with locally built wooden sloops racing at holiday regattas, and the island's Summer Festival is held each August.
+- **Culture:** Anguilla's Summer Festival, also called Carnival, celebrates the anniversary of emancipation and was previously known as August Monday in the Park.
 - **Politics:** Anguilla is a British Overseas Territory with internal self-government: a Governor appointed by the Crown, a Premier and an elected House of Assembly.
-- **Local pride:** Anguillans are proud of their independent spirit and their boat-building and sailing tradition, passed down through generations.
+- **Local pride:** Anguillans take pride in boat racing, which is the island's national sport.
 
 ## Antarctica
 
-- Antarctica holds about 90 percent of the world's ice and is the driest, windiest and coldest continent.
-- No country owns Antarctica, and it is governed by agreement among dozens of nations that have pledged to use it only for peaceful purposes and science.
+- Antarctica is the coldest, windiest and driest of Earth's continents, and a large share of the world's fresh water is frozen there.
+- About 5,000 people live at Antarctic research stations in summer and around 1,000 in winter.
 - **History:** The Antarctic Treaty was signed in Washington on 1 December 1959 by 12 countries and entered into force in 1961, setting the continent aside for peaceful science.
-- **Culture:** Stations around the continent celebrate Midwinter Day around 21 June with feasts, gifts and traditions, as the sun does not rise for weeks at the most southerly bases.
-- **Politics:** Antarctica has no government; it is managed under the Antarctic Treaty System, in which seven countries' territorial claims are set aside while the treaty is in force and decisions are made by consensus.
-- **Local pride:** Antarctica has no permanent residents, only research and support staff on rotation (a thousand or so over winter, several thousand in summer), who take pride in international scientific cooperation under harsh conditions.
+- **Culture:** Stations around the continent celebrate Midwinter Day on or around 21 June, the half-way point of the polar night, with multicourse feasts, gift exchanges and performances.
+- **Politics:** Antarctica has no government; it is managed under the Antarctic Treaty System, in which the consultative parties decide by consensus, seven countries claim portions of the continent, and new territorial claims are barred.
+- **Local pride:** Antarctica's population consists only of research and support staff rotating through stations, who take pride in international scientific cooperation under harsh conditions.
 
 ## Antigua and Barbuda
 
 - Antigua is famously said to have 365 beaches, one for every day of the year.
-- The country's economy and social life revolve heavily around sailing, and it hosts one of the Caribbean's most prominent annual yacht racing events.
+- Antigua Sailing Week, a week-long yacht regatta founded in 1967 and held off English Harbour, is cited as one of the top regattas in the world.
 - **History:** Antigua and Barbuda gained independence from the United Kingdom in 1981, becoming a sovereign nation within the Commonwealth.
-- **Culture:** Cricket holds a central place in national identity, and the annual summer carnival celebrates the abolition of slavery with parades, calypso, and steel pan music.
-- **Politics:** Antigua and Barbuda is a parliamentary democracy and Commonwealth realm, with the British monarch as head of state represented locally by a governor-general.
-- **Local pride:** Residents commonly take pride in a strong culture of warmth and hospitality toward visitors, and in the distinct, close-knit community life shared between the twin islands of Antigua and Barbuda.
+- **Culture:** Antigua's Carnival, held from late July to the first Tuesday in August, celebrates emancipation from slavery and features Calypso Monarch competitions and steel and brass bands.
+- **Politics:** Antigua and Barbuda is a unitary parliamentary democracy and constitutional monarchy, with the monarch represented locally by a governor-general.
+- **Local pride:** Antiguans take pride in the Antigua Black pineapple, a local variety grown on the island since pre-Columbian times.
 
 ## Argentina
 
-- Buenos Aires' Avenida 9 de Julio is often cited as the widest avenue in the world, spanning up to 20 lanes of traffic at points.
-- Argentina has one of the highest rates of beef consumption per capita in the world, reflecting the central role of cattle ranching in its history and economy.
-- **History:** During the military dictatorship's so-called Dirty War from 1976 to 1983, thousands of people were forcibly disappeared, a period that remains a defining national trauma.
-- **Culture:** Tango, both as a dance and musical form, originated in the working-class neighborhoods of Buenos Aires in the late 19th century and remains a defining Argentine cultural export.
-- **Politics:** Argentina is a federal presidential republic made up of 23 provinces plus an autonomous capital city, each with its own constitution and legislature.
-- **Local pride:** Argentines take deep pride in football as a national passion and in a strong tradition of literary and scientific achievement that has produced multiple Nobel Prize laureates.
+- Buenos Aires' Avenida 9 de Julio is up to 110 metres wide, with up to seven lanes in each direction, and Guinness World Records is cited as recognising it as the widest avenue in the world.
+- Argentina ranked third among listed countries for per-capita meat supply in 2020, at about 109 kilograms per person, and beef exports were central to its economy from 1870 to 1910.
+- **History:** The military junta that seized power in 1976 and gave way to civilian rule in 1983 presided over the Dirty War, in which an estimated 13,000 to 30,000 people were killed or forcibly disappeared.
+- **Culture:** Tango began in the 1880s in the working-class port districts of Buenos Aires and Montevideo along the Río de la Plata, and was added to UNESCO's Intangible Cultural Heritage lists in 2009 in a joint Argentina-Uruguay proposal.
+- **Politics:** Argentina is a federal presidential republic made up of 23 provinces plus an autonomous capital city, each with its own constitution and authorities.
+- **Local pride:** Argentines take pride in their national football team's three FIFA World Cup titles, won in 1978, 1986 and 2022.
 
 ## Armenia
 
 - Armenia is traditionally credited as the first nation to adopt Christianity as a state religion, in the year 301 CE.
 - Armenian is written in its own unique alphabet, created around 405 CE by the scholar Mesrop Mashtots, which remains in everyday use today.
-- **History:** Armenia declared independence from the Soviet Union in 1991, restoring statehood after being incorporated into the USSR in the early 1920s.
-- **Culture:** The duduk, an ancient double-reed woodwind instrument with a distinctive mournful tone, is central to Armenian folk music and recognized by UNESCO as intangible cultural heritage.
-- **Politics:** Armenia is a parliamentary republic in which executive power rests with the prime minister, while the presidency, elected by parliament, is a largely ceremonial role following a 2015 constitutional reform.
-- **Local pride:** Armenians widely take pride in a resilient sense of national identity sustained through centuries of statelessness and diaspora, and in traditions of hospitality and family-centered gatherings.
+- **History:** Armenia became a Soviet republic in 1920 and regained independence on 23 September 1991 as the Soviet Union dissolved.
+- **Culture:** The duduk, a double-reed woodwind with a distinctive mournful sound, was inscribed on UNESCO's Representative List of the Intangible Cultural Heritage of Humanity in 2008.
+- **Politics:** Armenia has been a parliamentary republic since a December 2015 constitutional referendum, with a prime minister heading the Government and a largely ceremonial president elected by parliament.
+- **Local pride:** Armenians take pride in chess, compulsory for grades 2 to 4 of public primary schools since 2011-12, and in the men's team's Olympiad gold medals in 2006, 2008 and 2012.
 
 ## Aruba
 
-- Aruba lies outside the usual Atlantic hurricane belt, just off the coast of Venezuela, and is dry and cactus-dotted rather than lush.
-- Most residents are fluent in several languages, including Papiamento, Dutch, English and Spanish.
-- **History:** Aruba left the Netherlands Antilles and became a separate constituent country of the Kingdom of the Netherlands on 1 January 1986, an arrangement called 'status aparte'.
-- **Culture:** Dera Gai, the festival of St. John around 24 June, marks the end of the harvest with music and dance; it once involved burying a rooster, now replaced by a calabash.
+- Aruba lies about 25 kilometres north of the Venezuelan coast and has a hot semi-arid climate with an arid, cactus-dotted landscape.
+- Papiamento and Dutch are Aruba's official languages, and Spanish and English are also used.
+- **History:** Aruba seceded from the Netherlands Antilles on 1 January 1986 and became a constituent country of the Kingdom of the Netherlands.
+- **Culture:** Dera Gai, held around St. John the Baptist Day (24 June), is a harvest celebration with bonfires, music and dance, and its traditional rooster ritual has largely been replaced by a calabash.
 - **Politics:** Aruba is a constituent country of the Kingdom of the Netherlands with its own parliament, prime minister and cabinet, and a governor who represents the Dutch monarch.
-- **Local pride:** Aruban residents are proud of their welcoming, multilingual and easygoing way of life, summed up locally as being 'one happy island'.
+- **Local pride:** Arubans take pride in their Carnival, whose Grand Parade has run since 1957.
 
 ## Australia
 
-- Australia is home to more species of venomous snakes than any other country, though fatal bites are rare thanks to widely available antivenom and medical care.
-- Because of its long isolation, over 80 percent of Australia's mammals, reptiles, and flowering plants are found nowhere else on Earth.
-- **History:** Federation in 1901 united six separate British colonies into a single Commonwealth of Australia under a new constitution.
-- **Culture:** Australian Rules Football, developed in Melbourne in 1858, is one of the country's most distinctive homegrown sports and draws massive local followings.
-- **Politics:** Australia is a federal parliamentary democracy and constitutional monarchy in which voting in federal elections is compulsory for citizens.
-- **Local pride:** Australians commonly take pride in an outdoor, beach- and sport-oriented lifestyle and a strong cultural emphasis on mateship and fair play.
+- No deaths have been conclusively attributed to inland taipan bites since specific antivenom was introduced, though untreated bites are thought to be fatal in over 80 percent of cases.
+- About 93 percent of Australia's reptiles, 69 percent of its mammals and 85 percent of its vascular plants are found nowhere else on Earth.
+- **History:** On 1 January 1901 six British colonies federated to form the new nation of Australia.
+- **Culture:** Australian rules football began in Melbourne in 1858 and has the highest spectator attendance of any sport in Australia.
+- **Politics:** Australia is a federal parliamentary constitutional monarchy in which voting in federal elections has been compulsory since 1924.
+- **Local pride:** Australians take pride in Anzac Day on 25 April, which marks the 1915 Gallipoli landing and commemorates those who served and died in all wars, conflicts and peacekeeping operations.
 
 ## Austria
 
-- Austria produced an outsized share of the classical music canon, having been home to composers such as Mozart, Haydn, and Schubert.
+- Mozart was born in Salzburg, Haydn in Rohrau and Schubert in Vienna, making Austria the birthplace of three giants of the classical canon.
 - Austria adopted permanent neutrality by constitutional law in 1955, a condition tied to the withdrawal of the Allied powers that had occupied it since World War II.
 - **History:** Austria was annexed by Nazi Germany in the 1938 Anschluss and remained under German control until the end of World War II in 1945, after which it was occupied by the four Allied powers for a decade.
-- **Culture:** Vienna's traditional coffeehouse culture, recognized by UNESCO as intangible cultural heritage, has served as a hub for writers, thinkers, and artists since the 19th century.
-- **Politics:** Austria is a federal parliamentary republic composed of nine states, with a directly elected president who holds a largely ceremonial role alongside a chancellor-led government.
-- **Local pride:** Austrians commonly take pride in their Alpine mountain traditions and winter sports culture, and in a broader culture of craftsmanship and quality in everything from wine to design.
+- **Culture:** Vienna's traditional coffeehouse culture has been on Austria's national inventory of intangible cultural heritage since 2011, and served as a hub for writers and artists from the 19th century.
+- **Politics:** Austria is a federal republic of nine states with a directly elected, largely ceremonial president and a chancellor-led government accountable to the National Council.
+- **Local pride:** Austrians take pride in Alpine skiing, in which Austria has won more Olympic medals than any other nation (132 in Wikipedia's current tally).
 
 ## Azerbaijan
 
-- The Absheron Peninsula around Baku hosts one of the world's largest concentrations of mud volcanoes, with several hundred found across the country.
-- Natural gas seeping from the ground around Baku has fed naturally occurring 'eternal flames' for centuries, linked to ancient Zoroastrian fire-worship traditions in the region.
-- **History:** Azerbaijan declared independence from the Soviet Union in 1991; it subsequently experienced armed conflict with Armenia over the Nagorno-Karabakh region that continued intermittently for decades.
-- **Culture:** Mugham, a traditional Azerbaijani musical genre combining poetry, vocal improvisation, and instrumental performance, is recognized by UNESCO as intangible cultural heritage.
-- **Politics:** Azerbaijan is a presidential republic in which executive power is concentrated in the presidency; a first vice-president position was created by constitutional amendment in 2017.
-- **Local pride:** Azerbaijanis commonly take pride in a long tradition of carpet weaving and a hospitality culture centered on tea-drinking and welcoming guests.
+- Azerbaijan and its Caspian coastline have nearly 400 mud volcanoes, a large share of the roughly 1,100 identified worldwide.
+- Natural gas seeping from the ground on the Absheron Peninsula fed the eternal flame at the Ateshgah of Baku, visited by Zoroastrian pilgrims, until Soviet-era extraction extinguished it in 1969; natural flames still burn at Yanar Dag.
+- **History:** Azerbaijan proclaimed independence from the Soviet Union on 30 August 1991, with a declaration adopted on 18 October 1991; it launched an offensive against Artsakh in September 2023, and a peace agreement with Armenia was initialed on 8 August 2025 but still awaited signing and ratification as of the latest source consulted.
+- **Culture:** Mugham, a classical Azerbaijani art form combining poetry with improvised music in local modes, was proclaimed a UNESCO Masterpiece in 2003 and added to the Representative List of Intangible Cultural Heritage in 2008.
+- **Politics:** Azerbaijan is nominally a semi-presidential republic whose president, directly elected for a seven-year term, appoints the vice president and cabinet; the vice-presidency was created by a September 2016 constitutional reform.
+- **Local pride:** Azerbaijanis take pride in their carpet-weaving tradition, which UNESCO recognised as intangible cultural heritage in 2010.
 
 ## Azores
 
-- The Azores are nine volcanic islands in the mid-Atlantic, about 1,400 kilometres west of Lisbon.
+- The Azores are nine volcanic islands in the mid-Atlantic, about 1,400 kilometres west of mainland Portugal.
 - Mount Pico, on Pico island, rises 2,351 metres and is the highest point in all of Portugal.
-- **History:** The islands were uninhabited when the Portuguese reached them in the early 1400s, and settlement began from the 1430s.
-- **Culture:** The Festas do Espírito Santo, or Holy Spirit festivals, are held across the islands each spring and summer, and cozido das Furnas is a stew slow-cooked underground using volcanic heat.
-- **Politics:** The Azores are an autonomous region of Portugal with their own elected regional parliament and government, a status established after the 1976 Portuguese constitution.
-- **Local pride:** Azoreans are proud of their dairy farming and cheese-making tradition, with green pastures and cattle central to island life.
+- **History:** The first documented Portuguese landing was on Santa Maria in 1432, and by about 1440 settlements had developed on several of the other islands.
+- **Culture:** The Festas do Espírito Santo, or Holy Spirit festivals, are held on all the islands from May to September, and cozido das Furnas is a stew buried in volcanic fumaroles and cooked underground.
+- **Politics:** The Azores have been an autonomous region of Portugal since 1976, with an elected regional Legislative Assembly and a Regional Government.
+- **Local pride:** Azoreans take pride in their dairy farming, one of the islands' main industries alongside agriculture, livestock, fishing and tourism.
 
 ## Bahamas
 
-- The Bahamas is made up of roughly 700 islands and more than 2,000 cays, of which only about 30 are permanently inhabited.
-- The islands are traditionally cited as the site of Christopher Columbus's first landfall in the Americas in 1492, at what is now San Salvador Island.
+- The Bahamas is made up of roughly 700 islands and some 2,400 cays, of which about 30 are inhabited.
+- Columbus's first landfall in the Americas in 1492 was on an island he named San Salvador, traditionally identified with the present San Salvador Island, though scholars debate whether it was instead Samana Cay.
 - **History:** The Bahamas gained independence from the United Kingdom in 1973, becoming a sovereign member of the Commonwealth.
-- **Culture:** Junkanoo, a vibrant street parade featuring elaborate costumes, drumming, and dance, is the Bahamas' signature cultural festival, held around Christmas and New Year.
-- **Politics:** The Bahamas is a parliamentary democracy and Commonwealth realm, with the British monarch as head of state represented locally by a governor-general.
-- **Local pride:** Bahamians commonly take pride in a seafaring, fishing, and conch-based culinary culture, and in strong community bonds across the many family islands.
+- **Culture:** Junkanoo is a street parade of elaborate costumes, goatskin drums, cowbells and brass bands, held on 26 December and 1 January.
+- **Politics:** The Bahamas is a parliamentary constitutional monarchy and Commonwealth realm, with the British monarch as head of state represented by a governor-general.
+- **Local pride:** Bahamians take pride in the women's 4x100 m relay team that won Olympic gold at Sydney 2000, known as the 'Golden Girls'.
 
 ## Bahrain
 
 - Bahrain is an archipelago of more than 30 islands, connected to Saudi Arabia by the King Fahd Causeway, a roughly 25-kilometer highway over water.
-- Bahrain was the first Gulf Arab state to discover oil, striking it in 1932 at the Jabal Dukhan field, a find that transformed the island's economy within a generation.
+- Bahrain was the first place on the Arabian side of the Persian Gulf where oil was discovered, in 1932, with the first well sunk below Jabal ad Dukhan.
 - **History:** Bahrain gained independence from the United Kingdom in 1971, ending a treaty relationship that had lasted since the 19th century.
-- **Culture:** Bahrain's historic pearl diving heritage is preserved along the Pearling Path in Muharraq, a UNESCO World Heritage site tracing the old pearl trade route.
-- **Politics:** Bahrain is a constitutional monarchy with a bicameral legislature made up of an elected Council of Representatives and an appointed Shura Council.
-- **Local pride:** Bahrainis commonly take pride in a long-standing history as a cosmopolitan trading hub of the Gulf, and in warm traditions of hospitality toward visitors.
+- **Culture:** Bahrain's pearling heritage is preserved in Pearling, Testimony of an Island Economy, a UNESCO World Heritage site inscribed in 2012 that links oyster beds, a coastal fort and 17 buildings in Muharraq along a 3.5 km path.
+- **Politics:** Bahrain has been described as a constitutional monarchy since reforms in 2002, though some sources call it an absolute monarchy; its bicameral National Assembly has an elected Council of Representatives and an appointed Shura Council.
+- **Local pride:** Bahrainis take pride in having hosted the first Formula One Grand Prix in the Middle East, the 2004 Bahrain Grand Prix at the Bahrain International Circuit in Sakhir.
 
 ## Bangladesh
 
 - Bangladesh contains the largest river delta in the world, formed by the confluence of the Ganges, Brahmaputra, and Meghna rivers.
-- It shares the Sundarbans with India, the largest contiguous mangrove forest on Earth and home to the Bengal tiger.
+- It shares the Sundarbans with India, the world's largest mangrove forest and an important habitat of the Bengal tiger.
 - **History:** Bangladesh gained independence from Pakistan in 1971 following a war of liberation that resulted in the creation of a new sovereign state.
-- **Culture:** Rabindra Sangeet, songs composed by Rabindranath Tagore, and the Pohela Boishakh festival marking the Bengali New Year are central to Bangladeshi cultural life.
-- **Politics:** Bangladesh is a parliamentary republic with a unicameral legislature, the Jatiya Sangsad; the president's role is largely ceremonial while executive power rests with the prime minister.
-- **Local pride:** Bangladeshis commonly take pride in the Bengali language as a core marker of national identity, and in a strong tradition of hospitality and community life woven through daily rituals like sharing tea and rice-based meals.
+- **Culture:** Tagore's songs and the Pohela Boishakh festival marking the Bengali New Year, usually on 14 April, are central to Bangladeshi cultural life; in Dhaka the day opens with a Tagore song at Ramna Park.
+- **Politics:** Bangladesh is a parliamentary republic with a unicameral legislature, the Jatiya Sangsad; the presidency is largely ceremonial while executive power rests with the government led by the prime minister, currently Tarique Rahman of the BNP since 17 February 2026 (as of the latest Wikipedia text).
+- **Local pride:** Bangladeshis take pride in the 1952 Language Movement for Bengali; its 21 February anniversary is a national holiday and was proclaimed International Mother Language Day by UNESCO in 1999.
 
 ## Barbados
 
-- Barbados was a British colony continuously from 1627 until independence in 1966, never changing hands between European powers, unlike almost every other Caribbean island.
-- Geologically Barbados sits apart from the main volcanic Antilles arc, built up largely from coral limestone rather than volcanic rock, which is why it lies outside the main hurricane belt affecting neighboring islands.
+- Barbados was settled by the English in 1627 and remained under English and later British control, without interruption by another European power, until independence in 1966.
+- Barbados is built of coral roughly 90 metres thick and lies outside the Main Development Region for Atlantic tropical cyclones, so it is often spared the worst storms.
 - **History:** Barbados became a republic on 30 November 2021, removing the British monarch as head of state and replacing her with a ceremonial president while remaining in the Commonwealth.
-- **Culture:** The annual Crop Over festival, with its calypso and soca competitions, descends from a harvest celebration held by enslaved plantation workers at the end of the sugar cane season.
-- **Politics:** Barbados is a parliamentary republic with a bicameral Parliament whose House of Assembly, established in 1639, is one of the oldest continuously operating legislatures in the Western Hemisphere.
-- **Local pride:** Pride centers on cricket, in which the island has produced an outsized share of West Indies talent relative to its tiny population, making the sport central to how Barbadians see their place in the world.
+- **Culture:** The annual Crop Over festival, a harvest celebration with roots in the sugar cane plantations of the slavery era, runs from June until the first Monday in August and culminates in the Grand Kadooment.
+- **Politics:** Barbados is a parliamentary republic with a bicameral Parliament, made up of an appointed Senate and an elected House of Assembly, whose first meeting was held in 1639.
+- **Local pride:** Barbadians take pride in cricket: many prominent West Indies players and several West Indies captains have come from the island, and its team won 11 Inter-Colonial Tournament titles.
 
 ## Belarus
 
-- Belarus shares with Poland the Białowieża Forest, one of the last remaining fragments of the primeval lowland forest that once covered much of Europe, and it is home to free-ranging European bison.
+- Belarus shares with Poland the Białowieża Forest, one of the last remaining parts of the immense primeval forest that once covered the European Plain, which is home to more than 800 European bison.
 - Roughly 70% of the radioactive fallout from the 1986 Chernobyl nuclear disaster landed on Belarusian territory, even though the plant itself sits across the border in Ukraine.
 - **History:** Belarus declared independence from the Soviet Union in 1991; Alexander Lukashenko has held the presidency since 1994, making him one of the longest-serving heads of state in Europe.
-- **Culture:** Belarusian, written in a distinct Cyrillic script, holds official status alongside Russian, and traditional straw weaving (salomkaplyacenne) remains a recognized folk craft passed down through generations.
-- **Politics:** Belarus is a presidential republic with a bicameral National Assembly; the 2020 presidential election result was disputed by the opposition and by Western governments, triggering large nationwide protests.
-- **Local pride:** Pride rests in resilience and hospitality, along with a strong attachment to the land itself — the country's forests, rivers, and staple crops like potatoes are central to everyday identity.
+- **Culture:** Belarusian, written in its own Cyrillic alphabet, holds official status alongside Russian.
+- **Politics:** Belarus is a republic with a strong presidency and a bicameral National Assembly; the 2020 presidential election result was disputed by the opposition and many foreign governments, triggering large nationwide protests.
+- **Local pride:** Belarusians take pride in draniki, grated-potato pancakes regarded as a national dish of Belarus.
 
 ## Belgium
 
 - Belgium has no single official national language: Dutch, French, and German are all official, and the country is organized into overlapping linguistic communities and regions rather than one unified administration.
-- Belgium brews well over a thousand distinct beer varieties, and six of the world's roughly dozen internationally certified Trappist breweries — monastic breweries producing beer within their own abbey walls — are located there.
+- Belgium has five breweries licensed to carry the Authentic Trappist Product label: Westmalle, Westvleteren, Chimay, Rochefort and Orval.
 - **History:** Belgium became an independent state in 1830 after the Belgian Revolution separated it from the United Kingdom of the Netherlands.
 - **Culture:** Belgium has a strong comic-strip tradition (bande dessinée), having produced Tintin and the Smurfs, and Brussels houses a dedicated Comic Strip Center celebrating the art form.
-- **Politics:** Belgium is a federal constitutional monarchy with power divided among linguistic communities and regions; in 2010-2011 it went a record 541 days without an elected government due to the complexity of coalition talks.
-- **Local pride:** Pride is closely tied to craftsmanship in food and drink — beer brewing, chocolate making, and fries — alongside a practical, understated regional identity shaped by living at a linguistic and cultural crossroads of Europe.
+- **Politics:** Belgium is a federal constitutional monarchy with power divided among linguistic communities and regions; after the 2010 election it went 589 days without an elected government, believed to be the longest such period for any country.
+- **Local pride:** Belgians take pride in their beer culture, inscribed by UNESCO in 2016 on the Representative List of the Intangible Cultural Heritage, with over 800 varieties of beer brewed in the country.
 
 ## Belize
 
 - Belize is the only country in Central America with English as its sole official language, a holdover from its history as the colony of British Honduras.
-- The Belize Barrier Reef is the second-largest barrier reef system on Earth, and it includes the Great Blue Hole, a giant circular marine sinkhole visible from the air.
-- **History:** Belize did not gain independence from the United Kingdom until 1981, one of the last mainland territories in the Americas to do so, partly because a territorial claim by Guatemala delayed the process for years.
-- **Culture:** Garifuna culture, descended from Africans and indigenous Caribbean peoples exiled to the region in 1797, is recognized by UNESCO for its distinct language, drumming, and punta music and dance.
+- The Belize Barrier Reef is the second-largest barrier reef in the world, behind Australia's Great Barrier Reef, and its features include the Great Blue Hole, a karst sinkhole.
+- **History:** Belize became independent from the United Kingdom on 21 September 1981, and Guatemala's territorial claim hampered progress toward independence and led Guatemala to refuse to recognise the new nation.
+- **Culture:** Garifuna culture, carried by the Afro-Indigenous people deported by the British from Saint Vincent to Roatán in 1797 who later spread into Belize, was proclaimed by UNESCO in 2001 a Masterpiece of the Oral and Intangible Heritage of Humanity for its language, dance and music.
 - **Politics:** Belize is a parliamentary constitutional monarchy within the Commonwealth, with the British monarch as head of state represented locally by a Governor-General, and a bicameral National Assembly handling legislation.
-- **Local pride:** Pride centers on the country's multiethnic mix — Creole, Garifuna, Maya, and Mestizo communities coexisting — and on a close, everyday relationship with the sea and surrounding natural environment.
+- **Local pride:** Belizeans take pride in Belize Kriol, an English-based creole widely spoken across the country's ethnic groups as a shared everyday language.
 
 ## Benin
 
 - The historical Kingdom of Dahomey, based in present-day Benin, maintained an all-female military regiment, sometimes called the Dahomey Amazons, that fought against French colonial forces in the 1890s.
-- Benin is one of Africa's largest producers of cotton, which accounts for a significant share of its export revenue and employs a large portion of the country's rural workforce.
-- **History:** The coastal town of Ouidah in present-day Benin served as one of the major departure ports of the transatlantic slave trade for roughly three centuries.
-- **Culture:** Benin marks National Vodun Day every January 10th, a public holiday celebrating traditional religion with ceremonial music, dance, and processions.
+- Cotton accounts for roughly four-fifths of Benin's official export receipts, and the economy depends heavily on agriculture.
+- **History:** Ouidah, historically Whydah, was a major embarkation port of the transatlantic slave trade, with European forts and trading posts there from the 1600s and the last known shipment to Cuba in 1873.
+- **Culture:** Benin observes Vodun Day, a public holiday listed on the second Friday in January, honouring the Vodun religion.
 - **Politics:** Benin moved from Marxist-Leninist one-party rule to multiparty democracy through a National Conference in 1990, an early transition often cited as a model for democratization elsewhere in Africa.
-- **Local pride:** Pride is rooted in a rich heritage of oral storytelling, music, and craftsmanship passed down through generations, alongside a strong communal identity centered on family and tradition.
+- **Local pride:** Beninese take pride in the return from France of 26 royal treasures of the Kingdom of Dahomey, looted from Abomey in 1892 and shown in an exhibition inaugurated in February 2022.
 
 ## Bermuda
 
-- Bermuda is about 1,000 kilometres east of North Carolina and has the northernmost coral reefs in the Atlantic Ocean.
-- The island has no rivers or natural freshwater streams, so houses traditionally collect rainwater from white, stepped limestone roofs.
-- **History:** The English ship Sea Venture was wrecked on Bermuda in 1609 while sailing to Virginia, and permanent English settlement of the island followed, with its first parliament meeting in 1620.
-- **Culture:** Gombey dancers perform in bright costumes to drum rhythms at holidays, and Cup Match, a two-day cricket game held around Emancipation Day, is a major public holiday.
-- **Politics:** Bermuda is a British Overseas Territory with internal self-government under a Westminster-style system, with a Governor appointed by the Crown, a Premier and a two-chamber parliament.
-- **Local pride:** Bermudians are proud of their cricket and community traditions, especially the shared holiday of Cup Match, which brings the whole island together.
+- Bermuda's nearest landmass is Cape Hatteras, North Carolina, about 1,040 kilometres away, and it is the most northerly place where mangrove trees grow.
+- The island has no rivers or freshwater lakes, so rainwater is its only fresh water and houses collect it from roofs built of stepped limestone slabs.
+- **History:** The English ship Sea Venture was wrecked on a Bermuda reef in 1609 while sailing to Jamestown, Virginia, permanent settlement followed in 1612, and the House of Assembly first sat in 1620.
+- **Culture:** Gombey dancers in peacock-feather headdresses, painted masks and capes perform to drum rhythms, most lively around Christmas and Boxing Day, and Cup Match, a two-day public holiday and cricket match, is held around Emancipation Day in early August.
+- **Politics:** Bermuda is a British Overseas Territory with formal responsibility for internal self-government, a Governor appointed by the Monarch, a Premier as head of government and a two-chamber Parliament of a House of Assembly and a Senate.
+- **Local pride:** Bermudians take pride in Bermuda Day, a late-May public holiday marked by a parade in Hamilton and a road race into the capital.
 
 ## Bhutan
 
-- Bhutan formally measures national progress through Gross National Happiness rather than GDP alone, a framework written directly into its 2008 constitution.
-- Bhutan is one of the only carbon-negative countries in the world, absorbing more carbon dioxide than it emits, thanks to a constitutional requirement to keep at least 60% of its land forested.
-- **History:** Bhutan was never colonized, first opened its doors to international tourists only in 1974, and held its first democratic parliamentary elections in 2008 as it shifted from absolute to constitutional monarchy.
-- **Culture:** Traditional dress — the gho for men and kira for women — is required by law in schools, government offices, and formal settings, and archery is the national sport, played with ceremony and singing between rounds.
-- **Politics:** Bhutan is a constitutional monarchy with a bicameral Parliament, and it manages tourism through a mandatory daily Sustainable Development Fee intended to limit environmental and cultural strain from visitors.
-- **Local pride:** Pride is rooted in Buddhist values of compassion and mindfulness that shape daily life and decision-making, along with a strong sense of communal identity expressed through shared festivals and hospitality toward guests.
+- Bhutan's constitution, enacted on 18 July 2008, directs the State to promote conditions that enable the pursuit of Gross National Happiness.
+- Bhutan's constitution requires that a minimum of 60 percent of its total land be maintained as forest for all time, and it is described as a net sink for greenhouse gases.
+- **History:** Bhutan was never officially colonized, opened to foreign tourists in 1974, and held its first national parliamentary elections in December 2007 and March 2008 as it changed from an absolute to a constitutional monarchy.
+- **Culture:** A national dress code, including the gho for men, was required of citizens in public, with extra protocol at dzongs and temples, and archery is the national sport, with competitions held regularly in most villages.
+- **Politics:** Bhutan is a constitutional monarchy with a bicameral Parliament of a National Council and a National Assembly, and it charges most foreign visitors a Sustainable Development Fee, reduced from US$200 to US$100 in August 2023.
+- **Local pride:** Bhutanese take pride in their tshechu, annual religious festivals held in each district at a dzong or important village and centred on cham mask dances, with the Paro and Thimphu tshechus among the largest.
 
 ## Bir Tawil
 
-- Bir Tawil is a roughly 2,060 square kilometre trapezoid of desert on the border between Egypt and Sudan.
-- It is one of the few places on Earth with land that no recognised state has claimed.
-- **History:** Egypt and Sudan's differing borders trace back to 1899, when a boundary along the 22nd parallel was set, and 1902, when an administrative boundary was drawn that put Bir Tawil under Sudanese administration and the Halaib area under Egyptian administration.
-- **Culture:** The Ababda, a nomadic Bedouin group, have traditionally moved through the surrounding desert with their herds.
+- Bir Tawil is a roughly 2,060 square kilometre quadrilateral of desert on the border between Egypt and Sudan.
+- Its highest point is Gabal Hagar El Zarqa at 662 metres, and it has no surface water.
+- **History:** Egypt and Sudan's differing borders trace back to 1899, when a boundary along the 22nd parallel was set, and 1902, when a separate administrative boundary was drawn that put Bir Tawil under Egyptian administration and the Hala'ib area under Sudanese administration.
+- **Culture:** The Ababda, a nomadic tribe of the Beja people, used Bir Tawil as grazing land and have traditionally roamed the desert between the Nile and the Red Sea.
 - **Politics:** Neither Egypt nor Sudan claims Bir Tawil, because each prefers the other boundary, under which they would hold the larger, adjacent Halaib Triangle; the area has no administration of its own.
-- **Local pride:** Bir Tawil has no permanent residents, so there is no local pride to describe, though nomadic Ababda herders have long travelled through the region.
+- **Local pride:** Bir Tawil has no permanent settlements, so there is no local pride to describe, though Ababda and Bishari tribespeople pass through the region.
 
 ## Bolivia
 
-- Bolivia has two capitals: Sucre is the constitutional capital and seat of the judiciary, while La Paz, at roughly 3,640 meters elevation, functions as the seat of government and is the highest administrative capital in the world.
-- The Salar de Uyuni in Bolivia is the largest salt flat on the planet and sits atop one of the world's largest known lithium reserves.
-- **History:** Bolivia lost its Pacific coastline to Chile in the War of the Pacific (1879-1884), leaving it landlocked, an outcome that remains a live diplomatic dispute between the two countries today.
-- **Culture:** Bolivia's constitution recognizes 36 official languages alongside Spanish, including Quechua, Aymara, and Guarani, and the Diablada devil dance is a centerpiece of the UNESCO-recognized Oruro Carnival.
-- **Politics:** Bolivia's 2009 constitution renamed the country the Plurinational State of Bolivia, formally recognizing indigenous nations' autonomy and legal traditions within the state.
-- **Local pride:** Pride is strongly tied to indigenous heritage and its living traditions, expressed through language, dress, and communal customs passed down through generations.
+- Bolivia has two capitals: Sucre is the constitutional capital and seat of the judiciary, while La Paz, at roughly 3,650 meters elevation, is the seat of government and the highest administrative capital in the world.
+- The Salar de Uyuni in Bolivia is the largest salt flat in the world, and most of Bolivia's lithium resources, roughly a fifth of the world's known total, lie beneath it.
+- **History:** Bolivia lost its Pacific coast to Chile in the War of the Pacific (1879-1884), and in 2018 the International Court of Justice found that Chile was under no obligation to negotiate sovereign sea access for Bolivia.
+- **Culture:** Bolivia's constitution gives official status to 36 indigenous languages alongside Spanish, and the Diablada devil dance is the main dance of the Oruro Carnival, inscribed on UNESCO's intangible cultural heritage list in 2008.
+- **Politics:** A new constitution in 2009 changed the country's official name to the Plurinational State of Bolivia.
+- **Local pride:** Bolivians take pride in the salteña, a baked empanada with a juicy, slightly spicy stew filling that is a traditional mid-morning snack in La Paz and Santa Cruz de la Sierra.
 
 ## Bonaire
 
-- Bonaire protected the waters around its entire coastline as a marine park in 1979, making it an early pioneer of reef conservation.
-- Bonaire has a famed flamingo breeding population and a long tradition of salt production from shallow pans.
-- **History:** The Dutch West India Company took Bonaire from the Spanish in 1636.
-- **Culture:** Papiamentu is widely spoken, and the Simadan harvest festival and Rincon Day on 30 April celebrate local music, dancing and food such as goat stew.
+- Bonaire's entire coastline was designated a marine sanctuary in 1979, and the Bonaire National Marine Park covers the whole coastline.
+- Bonaire is one of only four nesting grounds of the Caribbean flamingo, and its solar salt works produce about 400,000 tonnes of industrial-grade salt a year.
+- **History:** The Dutch conquered Bonaire from Spain in March 1636, and the Dutch West India Company then ran it as a plantation.
+- **Culture:** Papiamentu is an official language alongside Dutch, and Dia di Rincon on 30 April, Bonaire's biggest festival, marks the end of the Simadan harvest period with a flag-raising, performances and a parade.
 - **Politics:** Since 10 October 2010, when the Netherlands Antilles was dissolved, Bonaire has been a special municipality of the Netherlands, with an island council and a lieutenant governor.
-- **Local pride:** Bonaireans are proud of their strong conservation ethos and the way their small community lives closely with the sea and land.
+- **Local pride:** Bonaireans take pride in the island's reputation as one of the world's best shore-diving destinations, with some 89 named dive sites.
 
 ## Bosnia and Herzegovina
 
-- Sarajevo, now the capital of Bosnia and Herzegovina, hosted the 1984 Winter Olympics, the first Winter Games held in a socialist state and the only one staged in the Balkans to date.
-- Mostar's historic Stari Most bridge, destroyed during the 1990s war, was rebuilt using original construction techniques and reopened in 2004 as a UNESCO World Heritage site symbolizing postwar reconciliation.
-- **History:** The 1995 Dayton Agreement ended the Bosnian War and structured the country into two main entities, the Federation of Bosnia and Herzegovina and Republika Srpska, alongside the later self-governing Brčko District.
-- **Culture:** Sevdalinka, a traditional genre of emotionally expressive folk music, is a distinctly Bosnian musical tradition recognized on UNESCO's intangible cultural heritage list.
-- **Politics:** Under the Dayton Agreement, an international High Representative retains authority to oversee civilian implementation of the peace accords alongside the country's rotating tripartite presidency, with one Bosniak, one Croat, and one Serb member sharing the head-of-state role.
-- **Local pride:** Pride is centered on hospitality and shared everyday rituals like coffee and traditional cuisine, along with a strong sense of resilience through hardship.
+- Sarajevo, now the capital of Bosnia and Herzegovina, hosted the 1984 Winter Olympics, the first Winter Games held in a socialist state.
+- Mostar's Stari Most bridge, destroyed in 1993 during the war, was rebuilt using traditional techniques and reopened in July 2004, and the Old Bridge Area was inscribed on the UNESCO World Heritage List in 2005.
+- **History:** The 1995 Dayton Agreement ended the Bosnian War and structured the country into two highly autonomous entities, the Federation of Bosnia and Herzegovina and Republika Srpska, with the Brčko District as a third unit nominally under joint control but governed by its own local government.
+- **Culture:** Sevdalinka, a traditional genre of folk music originating in Bosnia and Herzegovina, was included on UNESCO's Representative List of the Intangible Cultural Heritage of Humanity in 2024.
+- **Politics:** Under the Dayton Agreement, an international High Representative, appointed by the Peace Implementation Council countries, oversees civilian implementation of the peace accords alongside a presidency with one member from each of the three major ethnic groups; as of July 2026 the office is held on an acting basis by Louis Crishock.
+- **Local pride:** Bosnians take pride in the Sarajevo Film Festival, founded in 1995 while the city was still under siege and now a major annual film event in southeast Europe.
 
 ## Botswana
 
 - Botswana transformed from one of the poorest countries in the world at independence in 1966 into an upper-middle-income economy, driven largely by diamond mining revenue managed through a state-mining partnership.
-- The Okavango Delta in Botswana is one of the few major river systems on Earth that never reaches the ocean, instead fanning out into a vast inland delta in the Kalahari.
-- **History:** Botswana, then Bechuanaland, gained independence from Britain in 1966 through a peaceful negotiated process rather than armed struggle, unusual among African decolonization movements.
-- **Culture:** Traditional Setswana praise poetry (maboko) and a deep-rooted cattle culture, where cattle ownership has long signified social status, remain central to community life.
-- **Politics:** Botswana is frequently cited as one of Africa's most stable multiparty democracies, having held regular elections since independence without a military coup.
-- **Local pride:** Pride centers on the tradition of the kgotla, a community assembly where issues are resolved through open, consensus-based discussion, alongside a strong communal ethic of wildlife and land stewardship.
+- The Okavango River in Botswana spreads across the Kalahari as a vast inland delta instead of flowing to the sea.
+- **History:** Botswana was the Bechuanaland Protectorate until it became the Republic of Botswana on 30 September 1966, after a constitution drafted at a 1963 conference took effect in 1965 and the Bechuanaland Democratic Party won that year's election.
+- **Culture:** Cattle have long been central to wealth and social standing among the Tswana, including bridewealth (bogadi) traditionally paid in cattle.
+- **Politics:** Botswana has held regular elections at five-year intervals since independence, and in 2024 the Botswana Democratic Party, which had won every earlier election, lost to the opposition and the outgoing president peacefully handed over power.
+- **Local pride:** Pride centers on the tradition of the kgotla, a village public meeting headed by the chief or headman where community decisions are reached by consensus.
 
 ## Bougainville
 
-- Bougainville is an island group at the northwest end of the Solomon Islands chain, though it is part of Papua New Guinea.
+- Bougainville Island is the largest island of the Solomon Islands archipelago, though it is part of Papua New Guinea.
 - The Panguna mine on Bougainville was once among the world's largest open-cut copper mines.
-- **History:** A civil conflict over the Panguna mine and its impact broke out in 1988 and lasted around ten years, ending with the Bougainville Peace Agreement of 2001.
-- **Culture:** In much of Bougainville land and clan membership pass through the mother's line, and women have a central role in land custom.
-- **Politics:** Bougainville is an autonomous region of Papua New Guinea with its own president and parliament; in a 2019 referendum about 98 percent voted for independence, but the result is non-binding and its implementation depends on ratification by Papua New Guinea's national parliament.
-- **Local pride:** Bougainvilleans are proud of their matrilineal custom of land stewardship and of their traditions of reconciliation that helped rebuild communities after the conflict.
+- **History:** A civil conflict over the Panguna mine's environmental damage and share of profits broke out in 1988 and lasted around ten years, and a peace agreement was reached in 2001.
+- **Culture:** Bougainville Province has many indigenous languages belonging to three language families, and most Bougainvilleans use Tok Pisin as a lingua franca.
+- **Politics:** Bougainville is an autonomous region of Papua New Guinea with its own president and House of Representatives; in a 2019 referendum 98.31 percent voted for independence, but the result is non-binding and awaits ratification by Papua New Guinea's National Parliament, and in July 2026 Bougainville's leaders recommended 1 September 2030 as the independence date (as of August 2026).
+- **Local pride:** Bougainvilleans take pride in their cocoa, with the region the most productive in Papua New Guinea for the crop and cocoa and copra its two main exports.
 
 ## Brazil
 
-- Brazil is the only Portuguese-speaking country in the Americas, a direct legacy of the 1494 Treaty of Tordesillas, which divided newly claimed territory between Spain and Portugal.
-- Brazil briefly became the seat of the entire Portuguese Empire when the royal court fled Napoleon's invasion and relocated to Rio de Janeiro in 1808, making it the only New World colony to host its European parent empire's capital.
-- **History:** Brazil became independent in 1822 when Prince Pedro declared separation from Portugal and was crowned Emperor Pedro I, an unusually monarch-led path to independence compared to the rest of Latin America.
-- **Culture:** Rio de Janeiro's Carnival features samba schools competing in elaborately staged parades, and capoeira, a martial art blending combat, dance, and music developed by enslaved Africans, is recognized on UNESCO's cultural heritage list.
-- **Politics:** Brazil is a federal presidential republic of 26 states plus a federal district, with compulsory voting for citizens aged 18 to 70 and optional voting for 16-17 year-olds and those over 70.
-- **Local pride:** Pride is strongly tied to a shared passion for football, seen as a source of national unity and creative flair, alongside deep pride in Brazil's ethnic and regional diversity across an enormous territory.
+- Brazil is the only Portuguese-speaking country in the Americas, and the 1494 Treaty of Tordesillas had divided the Portuguese domain to the east from the Spanish domain to the west.
+- When Napoleon invaded Portugal, the Portuguese court moved its government to Rio de Janeiro, then a colonial city, in late 1807.
+- **History:** Brazil became independent from Portugal on 7 September 1822, when Prince Regent Pedro declared independence and became its first emperor.
+- **Culture:** Rio de Janeiro's Carnival features samba schools competing in parades at the Sambadrome, and capoeira, an Afro-Brazilian martial art and game with dance and music that first appeared among Africans in colonial Brazil, was added to UNESCO's Representative List of the Intangible Cultural Heritage in 2014.
+- **Politics:** Brazil is a federation of 26 states and a Federal District, with voting compulsory for literate citizens aged 18 to 70 and optional for those aged 16 and 17, over 70, or illiterate.
+- **Local pride:** Brazilians take pride in the national football team's record five FIFA World Cup titles (1958, 1962, 1970, 1994, 2002), more than any other nation.
 
 ## British Virgin Islands
 
 - The British Virgin Islands are an archipelago of around 60 islands and cays, of which Tortola is the largest.
 - Although a British territory, the BVI uses the United States dollar as its currency.
 - **History:** The English took control of Tortola from the Dutch in 1672, and slavery in the British Empire, including the BVI, was abolished in 1834.
-- **Culture:** Fungi music, played with a gourd, ribbed instruments and a bass, and the annual August Emancipation Festival with its parades and Caribbean food define local celebrations.
+- **Culture:** Fungi music, named for a local cornmeal dish, uses instruments such as the calabash, washboard and bass, and the three-day Emancipation Festival each August marks the end of slavery in the territory.
 - **Politics:** The British Virgin Islands are a British Overseas Territory governed under a 2007 constitution, with a Governor appointed by the Crown, an elected Premier and a House of Assembly.
-- **Local pride:** Residents are proud of their seafaring and sailing way of life, which grew from the inter-island trading tradition to world-class yacht chartering.
+- **Local pride:** Residents are proud of the islands' reputation as one of the world's great sailing destinations, where chartering a yacht is a popular way to reach less accessible islands.
 
 ## Brunei
 
-- Brunei is one of the wealthiest countries in Asia by per-capita income due to substantial oil and gas reserves, and its citizens pay no personal income tax.
-- Sultan Hassanal Bolkiah, who has reigned since 1967, is one of the longest-serving current monarchs in the world.
-- **History:** Once the center of a powerful maritime empire controlling much of Borneo and parts of the Philippines in the 15th and 16th centuries, Brunei later became a British protectorate in 1888 and did not regain full independence until 1984.
-- **Culture:** Brunei introduced a Sharia Penal Code in stages beginning in 2014, operating alongside its existing common-law system, one of the few Southeast Asian states to do so.
+- Brunei ranks in the top ten in the world by GDP per capita at purchasing power parity, and there is no personal income tax or capital gains tax.
+- Sultan Hassanal Bolkiah has led Brunei since 1967.
+- **History:** At its peak under Sultan Bolkiah (1485-1528), Brunei is claimed to have controlled most of Borneo and the Sulu archipelago; it became a British protectorate in 1888 and regained independence from the United Kingdom on 1 January 1984.
+- **Culture:** Brunei has been implementing a Sharia Penal Code in stages since 2014, a code that includes punishments such as stoning and amputation.
 - **Politics:** Brunei is an absolute monarchy in which the Sultan serves as both head of state and head of government under the national philosophy of Melayu Islam Beraja, or Malay Islamic Monarchy.
-- **Local pride:** Pride centers on Islamic values and communal harmony, and on the security and free education and healthcare that the country's oil wealth has funded for residents.
+- **Local pride:** Bruneians take pride in ambuyat, the national dish, a starchy paste from the sago palm eaten with a linked pair of bamboo chopsticks called chandas and dipped in sauces such as chilli-based sambals.
 
 ## Bulgaria
 
-- Bulgaria is one of the oldest states in Europe, tracing its founding to the First Bulgarian Empire in 681 AD, and unlike most European nations it has kept the same name throughout its history.
-- Bulgaria is one of the world's largest producers of rose oil, drawn from its Rose Valley region and used widely in the global perfume industry.
-- **History:** Bulgaria endured nearly five centuries of Ottoman rule before gaining autonomy in 1878 and declaring full independence in 1908.
-- **Culture:** Bulgaria is known for its distinctive open-throated style of traditional polyphonic folk singing, and for the springtime custom of Baba Marta, when people exchange red-and-white martenitsa bracelets to mark the start of March.
-- **Politics:** Bulgaria is a parliamentary republic with a unicameral National Assembly elected by proportional representation, and a president who holds a largely ceremonial role with limited veto powers.
-- **Local pride:** Pride is tied to a strong tradition of dairy craftsmanship, particularly yogurt-making using a bacterial culture first identified in Bulgaria, along with a deep attachment to family, hospitality, and rural village life.
+- Bulgaria's statehood is dated to 681 AD, when the First Bulgarian Empire was recognised by treaty with the Byzantine Empire.
+- The Rose Valley near Kazanlak is among the world's major producers of attar of roses, and Bulgarian rose oil is sold under the name 'Bulgarian Rose'.
+- **History:** Bulgaria fell under Ottoman rule in 1396 for nearly five centuries, and proclaimed the independent Kingdom of Bulgaria on 5 October 1908.
+- **Culture:** Bulgarian polyphonic folk singing, with a drone accompaniment beneath the melody, is especially common in the Shope and Pirin regions, and on 1 March people mark Baba Marta by exchanging red-and-white martenitsi.
+- **Politics:** Bulgaria is a parliamentary republic with a unicameral 240-seat National Assembly elected from party lists, and a directly elected president who can return legislation to parliament, which can pass it again by an absolute majority.
+- **Local pride:** Bulgarians take pride in their yogurt, whose main bacterium, Lactobacillus bulgaricus, was first isolated in 1905 by a Bulgarian doctor from a Bulgarian yogurt sample.
 
 ## Burkina Faso
 
-- Burkina Faso's name, adopted in 1984 by revolutionary leader Thomas Sankara, combines Mooré and Dioula words to mean roughly "Land of Upright/Incorruptible People."
-- The capital, Ouagadougou, hosts FESPACO, the largest pan-African film and television festival, held biennially since 1969.
+- Burkina Faso was renamed in 1984 under Thomas Sankara, combining Mooré 'Burkina' (upright) and Dyula 'Faso' (fatherland), commonly translated 'land of the honest men'.
+- The capital, Ouagadougou, hosts FESPACO, founded in 1969, held every two years and regarded as the main event of African cinema.
 - **History:** Burkina Faso, then called Upper Volta, gained independence from France in 1960, and the country has since experienced numerous coups, including two in 2022 alone.
-- **Culture:** Bobo and Bwa communities are known for elaborate ceremonial mask traditions used in ritual dances, and the balafon, a wooden xylophone, remains a cornerstone of traditional music.
-- **Politics:** Burkina Faso has been governed by a military transitional administration since coups in 2022, part of a longer pattern of political instability since independence.
-- **Local pride:** Pride is rooted in resilience and communal solidarity in the face of political and economic hardship, and in a strong tradition of storytelling and oral history passed down through griot families.
+- **Culture:** The Bwa and Bobo peoples are known for their mask traditions, with Bwa dancers performing masks that represent spirits, and the balafon, a gourd-resonated xylophone, is found in Burkina Faso's music.
+- **Politics:** Burkina Faso has been governed by a military junta since the 2022 coups, led since September 2022 by Ibrahim Traore, who in May 2024 announced a 60-month extension of the transition (as of that report).
+- **Local pride:** Burkinabe take pride in the International Art and Craft Fair of Ouagadougou (SIAO), held every two years since 1988 and described as one of the most important African handicraft fairs.
 
 ## Burundi
 
-- Burundi is among the most densely populated countries in Africa, and despite being one of the poorest by GDP per capita, it sustains a highly developed tradition of sacred royal drumming.
-- Lake Tanganyika, which borders Burundi, is the world's second-deepest lake and holds roughly one-sixth of the planet's available surface freshwater.
+- Burundi has a population density of about 565 people per square kilometre, 25th in the world, and is the poorest country in the world by nominal GDP per capita.
+- Lake Tanganyika, shared by Burundi, Tanzania, the DR Congo and Zambia, is the world's second-deepest lake and holds about 16% of the world's available fresh water.
 - **History:** Burundi became independent from Belgium in 1962 as a kingdom, turned into a republic after a 1966 coup, and later endured a civil war from 1993 to 2005 rooted in tensions between Hutu and Tutsi communities.
-- **Culture:** The Royal Drummers of Burundi perform a traditional drumming ceremony historically linked to the royal court, inscribed on UNESCO's list of intangible cultural heritage.
-- **Politics:** The 2000 Arusha Accords established ethnic power-sharing quotas between Hutu and Tutsi in Burundi's government and military, aimed at ending the country's civil war.
-- **Local pride:** Pride is rooted in strong communal bonds and a deep respect for age and lineage, along with resilience built through decades of hardship and a shared determination toward reconciliation between communities.
+- **Culture:** Burundi's ritual dance of the royal drum, combining coordinated drumming with dance, heroic poetry and songs, was inscribed on UNESCO's Representative List of the Intangible Cultural Heritage of Humanity in 2014.
+- **Politics:** The Arusha Agreement of 2000 was later integrated into the 2005 constitution, and ethnic quotas were set in early 2005 for positions in Burundi's government.
+- **Local pride:** Burundians take pride in Kirundi, the national language, natively spoken by the Hutu, Tutsi and Twa alike.
 
 ## Cabo Verde
 
-- Cabo Verde had no indigenous population before Portuguese settlers arrived in the 15th century, and its Kriolu culture developed from the mixing of Portuguese colonists and enslaved Africans brought to the islands.
-- Cabo Verde is one of the few African nations with more citizens living abroad in its diaspora than remain on the islands, and remittances from that diaspora make up a significant share of national income.
-- **History:** Cabo Verde gained independence from Portugal in 1975 through a joint independence movement, the PAIGC, shared with Guinea-Bissau, though the two countries later went their separate political ways.
-- **Culture:** Morna, a melancholic musical genre often compared to Portuguese fado, expresses the concept of "sodade," a deep longing for home and loved ones central to Cabo Verdean identity.
-- **Politics:** Cabo Verde is regarded as one of Africa's most stable democracies, holding regular multiparty elections since adopting a multiparty constitution in 1991.
-- **Local pride:** Pride centers on a resourceful, resilient way of life shaped by the islands' arid volcanic terrain and long maritime tradition, along with strong extended-family bonds that stretch across the Atlantic to relatives abroad.
+- The Cabo Verde archipelago was uninhabited until the 15th century, when Portuguese settlement began.
+- Cabo Verde's diaspora considerably outnumbers the inhabitants of the islands, and expatriates contribute an estimated 20% of GDP through remittances.
+- **History:** Cabo Verde gained independence from Portugal in 1975, with the PAIGC forming the basis of the independence movement of both Cabo Verde and Guinea-Bissau, and the party became the PAICV in 1980 as Cabo Verde sought to distance itself from Guinea-Bissau.
+- **Culture:** Morna, a plaintive music widely considered Cabo Verde's national music, as fado is for Portugal, centres on 'sodade', the Creole form of saudade expressing the nostalgia of emigrants, and was proclaimed UNESCO intangible heritage in 2019.
+- **Politics:** Cabo Verde was a single-party state until 1991, when multiparty elections were first held, and it is generally regarded as having a stable democratic system.
+- **Local pride:** Cabo Verdeans take pride in cachupa, a slow-cooked stew of hominy, beans and fish or meat referred to as the national dish, whose leftovers are fried as cachupa refogada.
 
 ## Cambodia
 
-- Angkor Wat, built in the early 12th century, covers roughly 162 hectares, making it the largest religious monument in the world by land area.
-- The Tonlé Sap, Southeast Asia's largest freshwater lake, actually reverses the direction of its flow twice a year as the Mekong's water levels rise and fall with the monsoon.
-- **History:** From 1975 to 1979 the Khmer Rouge regime under Pol Pot emptied the cities and ran a system of forced labor camps that killed an estimated 1.5 to 2 million people through execution, starvation, and disease.
-- **Culture:** Khmer classical dance (commonly called Apsara dance), with its slow, precise hand gestures and gilded costumes, is inscribed by UNESCO as an Intangible Cultural Heritage of Humanity.
-- **Politics:** Cambodia is a constitutional monarchy in which the king is head of state but holds a largely ceremonial role; unlike most monarchies, the successor is chosen from eligible royal candidates by a Royal Council of the Throne rather than by strict hereditary primogeniture.
-- **Local pride:** Many Cambodians take pride in the endurance of Khmer civilization and its Buddhist traditions, having rebuilt a shared cultural identity within living memory of genocide and war.
+- Angkor Wat, built in the early 12th century, stands on a 162.6-hectare site and is described as the largest religious complex in the world.
+- The Tonle Sap, the largest freshwater lake in Southeast Asia, is linked to the Mekong by a river that flows toward the lake for about six months of the year and back toward the Mekong for the other six.
+- **History:** From 1975 to 1979 the Khmer Rouge regime forcibly evacuated the major cities into rural communes, and its policies are estimated to have killed 1.5 to 2 million people through execution, famine and disease.
+- **Culture:** Khmer classical dance, performed by the Royal Ballet of Cambodia, uses hand gestures called kbach and intricate costumes sewn onto the dancers, and is on UNESCO's intangible cultural heritage lists.
+- **Politics:** Cambodia is a constitutional monarchy in which the king is head of state and holds no political power under the constitution; a Royal Council of the Throne selects a new king from a pool of candidates with royal blood.
+- **Local pride:** Cambodians take pride in Bon Om Touk, the three-day Water Festival with dragon boat races that marks the end of the rainy season.
 
 ## Cameroon
 
-- Cameroon is nicknamed "Africa in miniature" because within one country it contains nearly every major African climate zone and landscape, from Sahelian desert in the north to dense rainforest in the south.
-- As a result of its split colonial history under France and Britain, Cameroon is one of only a few African countries with two official languages, French and English, unevenly split across its regions.
-- **History:** After being a German colony seized during World War I, Cameroon was divided into separate French and British League of Nations mandates (later UN trust territories), and the two zones did not unite into a single independent country until 1961.
-- **Culture:** Makossa, a dance music genre that emerged in the port city of Douala in the 1950s blending traditional rhythms with jazz and highlife influences, went on to shape West and Central African pop music broadly.
-- **Politics:** Cameroon is a presidential republic in which the head of state has held office continuously since 1982, one of the longest unbroken presidential tenures anywhere in the world.
-- **Local pride:** Cameroonians widely take pride in their national football team's international success, which is often described as one of the few things that unites the country's many ethnic and linguistic communities.
+- Cameroon is often called "Africa in miniature" for its geological, linguistic and cultural diversity, with coast, desert, mountains, rainforest and savanna.
+- Cameroon's official languages are French and English.
+- **History:** Cameroon became a German colony in 1884; after World War I it was divided between France and Britain as League of Nations mandates, and on 1 October 1961 Southern Cameroons merged with the Republic of Cameroon.
+- **Culture:** Makossa, a dance music genre originating in Douala, reached a global audience through Manu Dibango's 1972 song "Soul Makossa".
+- **Politics:** Cameroon is a unitary presidential republic in which Paul Biya has led the country since 1982; protests followed the 2025 presidential election but, per the latest source, did not remove him from power.
+- **Local pride:** Cameroonians take pride in the Indomitable Lions, the national football team that became the first African side to reach a World Cup quarter-final in 1990 and has won the Africa Cup of Nations five times.
 
 ## Canada
 
-- Canada has the longest coastline of any country on Earth, stretching more than 200,000 kilometers across three oceans.
-- Canada and the United States share the longest international land border in the world, running roughly 8,891 kilometers including Alaska.
-- **History:** The 1931 Statute of Westminster gave Canada full legislative independence from the United Kingdom, though it took until 1982 for Canada to fully patriate its constitution and gain the ability to amend it without British approval.
-- **Culture:** Alongside ice hockey's central place in national identity, lacrosse, adapted from games played by Indigenous peoples for centuries, is formally recognized by law as Canada's official national summer sport.
-- **Politics:** Canada is a federal parliamentary democracy and constitutional monarchy in which the British monarch remains head of state but is represented domestically by a Governor General who exercises the role's day-to-day functions.
-- **Local pride:** Canadians commonly take pride in the country's universal public healthcare system and its self-image as an open, multicultural society.
+- Canada has the longest coastline of any country, bordering the Atlantic, Pacific and Arctic oceans.
+- Canada and the United States share the longest international land border in the world, which is 8,891 kilometres long.
+- **History:** The 1931 Statute of Westminster gave Canada legal autonomy as a self-governing Dominion, though the UK kept the power to amend its constitution until the Constitution Act, 1982 transferred it to Canada.
+- **Culture:** Alongside ice hockey, recognised as Canada's national winter sport, lacrosse, played by Indigenous peoples of North America since as early as the 12th century, is recognised as Canada's national summer sport under the National Sports of Canada Act of 1994.
+- **Politics:** Canada is a parliamentary democracy and a constitutional monarchy in the Westminster tradition, with a Governor General representing the monarch, who is the ceremonial head of state.
+- **Local pride:** Canadians take pride in Medicare, the publicly funded health insurance system governed by the Canada Health Act of 1984 and its principles of universality and public administration.
 
 ## Cayman Islands
 
 - The Cayman Islands consist of three islands, Grand Cayman, Cayman Brac and Little Cayman, and are about 700 kilometres south of Miami.
 - The territory levies no income, capital gains or corporate taxes on residents.
-- **History:** Christopher Columbus sighted the islands in 1503 and named them Las Tortugas for the turtles, and Spain formally ceded Jamaica and its dependencies to England in the 1670 Treaty of Madrid.
-- **Culture:** Pirates Week is held each November, and traditional dishes include turtle stew and cassava cake.
+- **History:** Christopher Columbus sighted the islands on 10 May 1503 and named them Las Tortugas for the turtles, and England took formal control of the Cayman Islands, along with Jamaica, under the 1670 Treaty of Madrid.
+- **Culture:** Pirates Week, an 11-day festival begun in 1977, is held each November, and stewed turtle is regarded as the national dish.
 - **Politics:** The Cayman Islands are a British Overseas Territory with a 2009 constitution, a Governor appointed by the Crown, a Premier and Cabinet, and an elected Parliament.
-- **Local pride:** Caymanians are proud of their seafaring heritage as turtlers, fishermen and shipbuilders, which shaped the islands' self-reliant character.
+- **Local pride:** Caymanians are proud of their seafaring heritage, in which people got their livelihood from the sea through fishing, turtle harvesting and work as merchant seamen.
 
 ## Central African Republic
 
-- The Central African Republic is landlocked and borders six other countries, yet remains one of the most sparsely populated nations in Africa relative to its land area.
-- Despite sitting on substantial diamond and gold deposits, the country has for years ranked at or near the bottom of the UN's Human Development Index.
-- **History:** After independence from France in 1960, army chief Jean-Bédel Bokassa seized power in a 1966 coup and in 1977 crowned himself Emperor of the renamed Central African Empire, a regime that lasted until he was overthrown in 1979.
-- **Culture:** The Aka (Bayaka) forest peoples of the country's south are known for an intricate, multi-part polyphonic vocal singing tradition that has been extensively studied by ethnomusicologists and sampled by musicians worldwide.
-- **Politics:** The Central African Republic is a presidential republic that has experienced repeated coups and rebellions, and it currently hosts a United Nations peacekeeping mission (MINUSCA) supporting the transitional security situation.
-- **Local pride:** Many Central Africans take pride in their communities' resilience and traditions of mutual support, sustained despite decades of instability.
+- The Central African Republic is landlocked, bordering Chad, Sudan, South Sudan, the Democratic Republic of the Congo, the Republic of the Congo and Cameroon, and has a population density of about 8.6 people per square kilometre.
+- Rich in gold and diamonds, the country was ranked 191st of 193 countries, the third-lowest, on the UN Human Development Index in the 2023 data.
+- **History:** After independence from France in 1960, Jean-Bédel Bokassa seized power in the Saint-Sylvestre coup of 31 December 1965 to 1 January 1966, declared the Central African Empire in December 1976 and crowned himself emperor in December 1977, until he was overthrown in September 1979.
+- **Culture:** The Aka (Bayaka) people of south-western Central African Republic are known for their polyphonic singing, which ethnomusicologists have studied for decades and which has featured on recordings by other musicians.
+- **Politics:** The Central African Republic is a unitary presidential republic that has hosted almost a dozen peacekeeping interventions, and the UN mission MINUSCA, operational since September 2014, was still active as of late 2025.
+- **Local pride:** Central Africans take pride in Sango, the national and official language, which almost all of the country's roughly 5.5 million people speak as of 2025.
 
 ## Chad
 
-- Chad takes its name from Lake Chad, once one of the largest lakes in Africa, which has shrunk by more than 90 percent since the 1960s due to climate shifts and rising water demand.
-- Chad's Ennedi Plateau, a UNESCO World Heritage site, holds sandstone rock formations and rock art painted thousands of years ago when the surrounding Sahara was a green savanna.
-- **History:** In the 1987 "Toyota War," lightly armed Chadian forces mounted on pickup trucks decisively defeated a far better-equipped Libyan army occupying northern Chad, ending years of Libyan intervention in the country's civil conflict.
-- **Culture:** Chad is home to more than 200 ethnic groups speaking over 100 languages, and shared tea ceremonies and millet-based dishes like boule remain central to everyday social life across communities.
-- **Politics:** Chad is a semi-presidential republic; when its longtime president died in 2021, power passed to his son through a military transitional council rather than through the constitution's normal succession process.
-- **Local pride:** Chadians take pride in their traditions of hospitality and resourcefulness, and in their endurance in one of the world's harshest Sahelian and Saharan environments.
+- Chad takes its name from Lake Chad, whose open water shrank from about 25,000 square kilometres in 1960 to about 2,000 by 1980 and has been relatively stable since the mid-1990s.
+- Chad's Ennedi Massif, inscribed as a UNESCO World Heritage site in 2016, is a sandstone landscape of towers and arches with rock art dating back nearly 7,000 years.
+- **History:** In the 1987 Toyota War, Chadian troops using Toyota pickups, some armed with MILAN anti-tank missiles, defeated Libyan forces that had occupied northern Chad since 1983, and a ceasefire took effect on 11 September 1987.
+- **Culture:** Chad has more than 200 ethnic groups and over 100 languages, and its cuisine is built on millet, with carcaje, a sweet red hibiscus tea, a popular drink.
+- **Politics:** Chad is a presidential republic; after President Idriss Déby died on 20 April 2021, a Transitional Council of military officers named his son Mahamat Déby interim president, and Mahamat Déby was sworn in as president on 23 May 2024 after a disputed 6 May election.
+- **Local pride:** Chadians take pride in Chari Jazz, the music group formed in 1964 that began Chad's modern music scene.
 
 ## Chatham Islands
 
-- The Chatham Islands lie about 800 kilometres east of mainland New Zealand and have fewer than 1,000 residents.
-- The islands keep their own time zone, 45 minutes ahead of the rest of New Zealand, so they are among the first inhabited places to see each new day.
-- **History:** In 1835 Māori from Taranaki invaded the islands, and the indigenous Moriori, who had a long-standing tradition of non-violence, were killed or enslaved in large numbers.
-- **Culture:** Moriori carved portraits and symbols into kopi trees, and the islands' crayfish (rock lobster) and paua are central to local food and industry.
-- **Politics:** The Chatham Islands are part of New Zealand and are governed by a unique territorial authority, the Chatham Islands Council, created by special legislation in 1995 rather than as part of a regional council.
-- **Local pride:** Islanders are proud of their resilient, self-reliant remote community, built on fishing and farming and on the living heritage of both Moriori and Māori.
+- The Chatham Islands lie about 800 kilometres east of New Zealand's South Island and had an estimated population of 620 as of June 2025.
+- The islands observe their own time, 45 minutes ahead of New Zealand time.
+- **History:** In November 1835 Ngāti Mutunga and Ngāti Tama, Māori originally from Taranaki who had been living in Wellington, invaded the islands, and the Moriori, who followed a policy of non-aggression, were enslaved and reduced to 101 people by 1862.
+- **Culture:** Moriori carved human figures, fish and birds into tree trunks as dendroglyphs known as rakau momori, and fishing for crayfish, shellfish, finfish and kina is the islands' largest economic sector.
+- **Politics:** The Chatham Islands are part of New Zealand and are governed by the Chatham Islands Council, established on 1 November 1995 by the Chatham Islands Council Act 1995 as a territorial authority that also performs some regional council functions.
+- **Local pride:** Islanders take pride in the revival of Moriori heritage, marked by vocabulary and song preservation efforts since 2001 and the Moriori Claims Settlement Act passed on 23 November 2021, which included a Crown apology.
 
 ## Chile
 
-- Chile is the longest north-south country in the world, stretching over 4,300 kilometers while averaging only about 175 kilometers in width.
+- Chile stretches over 4,300 kilometres from north to south while averaging only about 175 kilometres in width.
 - Parts of northern Chile's Atacama Desert are among the driest places on Earth, with some weather stations having never recorded a drop of rain.
 - **History:** The 1973 military coup that overthrew elected President Salvador Allende installed the Pinochet dictatorship, which held power until a 1988 plebiscite led to a return to civilian rule in 1990.
-- **Culture:** Cueca, Chile's national dance, is a courtship dance performed with handkerchiefs, and communal asado barbecues along with empanadas are staples of Chilean social gatherings.
-- **Politics:** Following mass protests in 2019, Chile held two separate national referendums, in 2022 and 2023, on replacing its Pinochet-era constitution; voters rejected both proposed drafts, leaving the amended original charter in force.
-- **Local pride:** Chileans commonly take pride in their country's relative economic stability and work ethic, often cited as among the strongest in Latin America.
+- **Culture:** Cueca, declared Chile's national dance in 1979, is a courtship dance in which partners wave white handkerchiefs, and the empanada is a traditional dish eaten at September independence day celebrations.
+- **Politics:** Following nationwide protests that began in 2019, Chile held referendums on replacing its 1980 constitution, rejecting proposed drafts on 4 September 2022 (61.87 percent against) and 17 December 2023 (55.76 percent against), so the 1980 Constitution remains in force.
+- **Local pride:** Chileans take pride in the 2010 San José mine rescue, in which all 33 trapped miners were brought out alive after 69 days underground.
 
 ## China
 
-- China's Grand Canal, with sections dating back over 2,400 years, is the longest artificial waterway ever built, linking the Yangtze and Yellow river basins.
+- China's Grand Canal, the longest artificial waterway in the world, runs about 1,776 kilometres from Beijing to Hangzhou, and its oldest sections were completed in the early 5th century BC.
 - Although China spans five geographic time zones, the entire country officially runs on a single time standard, Beijing Time.
-- **History:** The Chinese Communist Party's victory in the civil war led to the founding of the People's Republic of China in 1949 under Mao Zedong, ending decades of conflict and foreign occupation.
-- **Culture:** Chinese calligraphy is treated as a major fine art form with distinct brushwork schools developed over millennia, and regional cuisines such as Sichuan and Cantonese differ dramatically in ingredients and technique.
+- **History:** The Chinese Communist Party's victory over the Kuomintang in the civil war, which resumed after Japan's 1945 surrender, led Mao Zedong to proclaim the People's Republic of China in 1949.
+- **Culture:** Chinese calligraphy, whose earliest known form is Shang-dynasty oracle bone script, was added to UNESCO's Intangible Cultural Heritage list in 2009, and regional cuisines such as Sichuan and Cantonese are among the Eight Cuisines of China.
 - **Politics:** China is governed as a one-party state under the Chinese Communist Party, with the National People's Congress serving as the constitutionally designated national legislature.
-- **Local pride:** Many people in China take pride in the country's long, continuous civilizational history and in the rapid economic development of recent decades that lifted hundreds of millions out of poverty.
+- **Local pride:** Many people in China take pride in Chunyun, the Spring Festival travel season that has been called the largest annual human migration in the world, as families return home for the New Year's Eve reunion dinner.
 
 ## Christmas Island
 
-- Each year tens of millions of red crabs migrate from the island's forest to the coast to spawn, and roads are closed and crab bridges used to let them cross.
-- The island lies in the Indian Ocean roughly 350 km south of Java, much closer to Indonesia than to mainland Australia.
-- **History:** Britain annexed the island in 1888 and phosphate mining began soon after; sovereignty was transferred to Australia in 1958.
-- **Culture:** The population is largely of Chinese, Malay and European descent, and festivals such as Lunar New Year and Hari Raya Puasa are both marked on the island.
+- Each year red crabs leave the island's forest and travel to the coast to breed, and an estimated 43.7 million adults lived on the island before invasive yellow crazy ants killed roughly a third of them.
+- The island lies in the Indian Ocean about 350 kilometres south of Java and Sumatra.
+- **History:** Britain annexed the island in 1888 after phosphate deposits were found, commercial mining began in 1899, and the island was placed under Commonwealth of Australia authority on 1 October 1958.
+- **Culture:** The 2021 census recorded Chinese as the largest declared ancestry (22.2 percent) followed by Malay (16.1 percent), and festivals such as Spring Festival and Hari Raya Puasa are marked on the island though they are not official holidays.
 - **Politics:** It is an external territory of Australia, administered through an Administrator appointed by the Governor-General, with a local Shire council and residents voting in Australian federal elections.
-- **Local pride:** Residents take pride in a close-knit, multicultural community that lives alongside the red crab migration and pauses daily life each year to let it happen.
+- **Local pride:** Residents take pride in protecting the red crab migration, with park rangers managing barriers, underpasses, a crab bridge on Murray Road and road closures during the migration.
 
 ## Cocos (Keeling) Islands
 
 - The territory consists of 27 coral islands arranged in two atolls, and only two of them, West Island and Home Island, are inhabited.
-- Most Home Island residents are Cocos Malay, who speak a distinct dialect of Malay known as Cocos Malay.
-- **History:** In 1984 residents voted in a United Nations-supervised act of self-determination to integrate with Australia.
-- **Culture:** Cocos Malay traditions, including Islamic observances such as Hari Raya and traditional Malay music and dance, remain central to life on Home Island.
+- Cocos Malays are the majority group in the territory, and most islanders practise Sunni Islam.
+- **History:** In a referendum on 6 April 1984, 229 of the 261 eligible islanders who voted chose integration with Australia.
+- **Culture:** Cocos Malays have their own dress code, with women wearing the baju kebaya and men the baju melayu, and elders are addressed by kinship terms such as Mak, Pak and Nek.
 - **Politics:** It is an external territory of Australia, with an Administrator appointed by the Governor-General and a local Shire council providing local government.
-- **Local pride:** Cocos Malay residents are proud of keeping their own language, customs and tight-knit island community alive across generations.
+- **Local pride:** Cocos Malay residents are proud of Basa Pulu Kokos, their own dialect of Malay based mainly on Betawi Malay.
 
 ## Colombia
 
-- Colombia is considered the world's second most biodiverse country despite covering less than one percent of the planet's land surface.
-- Colombia is the only country in South America with coastlines on both the Pacific Ocean and the Caribbean Sea.
-- **History:** A 2016 peace agreement between the Colombian government and the FARC guerrilla group brought a formal end to more than five decades of armed conflict, one of the longest-running civil conflicts in the Western Hemisphere.
-- **Culture:** Colombia is the birthplace of cumbia, and the Carnival of Barranquilla, one of the largest carnival celebrations in the world, is recognized by UNESCO as intangible cultural heritage.
-- **Politics:** Colombia's 1991 constitution created the "tutela," a fast-track legal mechanism letting any citizen petition a judge directly for prompt protection of a fundamental constitutional right.
-- **Local pride:** Colombians widely take pride in their coffee-growing tradition and in a reputation for warmth and hospitality that persists alongside the country's turbulent recent history.
+- Colombia has the world's second-highest level of biodiversity overall.
+- Colombia has coastlines on both the Pacific Ocean and the Caribbean Sea.
+- **History:** In November 2016 the Colombian government and the FARC signed a revised peace deal intended to end more than five decades of conflict that began in 1964, although the wider conflict is still listed as ongoing.
+- **Culture:** Cumbia comes from Colombia's coastal region, and the Carnival of Barranquilla, one of the biggest carnivals in the world, was proclaimed a UNESCO Masterpiece of the Oral and Intangible Heritage of Humanity in 2003.
+- **Politics:** Colombia's 1991 constitution created the acción de tutela, a mechanism that lets citizens assert their fundamental rights quickly.
+- **Local pride:** Colombians take pride in their coffee, with the National Federation of Coffee Growers, founded in 1927, representing over 540,000 producers, most of them on small family farms.
 
 ## Comoros
 
 - The small island nation of Comoros is one of the world's leading producers of ylang-ylang essential oil, a key ingredient in perfumes such as Chanel No. 5.
-- Comoros has experienced more than 20 coups or attempted coups since gaining independence in 1975, among the highest counts per capita of any country.
-- **History:** When Comoros became independent from France in 1975, the island of Mayotte voted separately to remain under French administration, a split that continues to shape the archipelago's politics.
-- **Culture:** The "grand marriage" (anda-zima) is a major traditional social institution in Comorian society, combining an elaborate, often multi-day wedding ceremony with communal feasting and status within the community.
-- **Politics:** Comoros's constitution has at times provided for the union presidency to rotate among its three main islands, Grande Comore, Anjouan, and Mohéli, though subsequent constitutional changes have altered this arrangement.
-- **Local pride:** Comorians take pride in their blended Swahili-Arab-African identity and in the strong extended-family bonds and hospitality that anchor everyday life across the islands.
+- Comoros has experienced more than 20 coups or attempted coups since gaining independence in 1975.
+- **History:** When Comoros declared independence from France on 6 July 1975, the island of Mayotte, which had voted against independence in referendums in 1974 and 1976, remained under French administration.
+- **Culture:** The grand marriage (ada) is a costly, elaborate Comorian wedding, with about two weeks of celebration, gold jewelry and a large bridal dowry, that marks a man's passage to elder status.
+- **Politics:** Comoros is a federal presidential republic of three main islands, Grande Comore, Anjouan and Mohéli; a July 2018 referendum, boycotted by the opposition, extended the presidential mandate from one five-year term to two.
+- **Local pride:** Comorians take pride in Shikomori, the Comorian language family spoken by over 95 percent of the population with a variant on each island, which is an official language alongside Arabic and French.
 
 ## Congo-Brazzaville
 
-- The Republic of the Congo was governed for two decades, from 1970 to 1991, as the People's Republic of the Congo, one of the few African states to formally adopt Marxism-Leninism as state ideology.
-- Brazzaville faces Kinshasa, the capital of the neighboring Democratic Republic of the Congo, directly across the Congo River, making them widely cited as the closest pair of capital cities of any two countries in the world.
-- **History:** During World War II, Brazzaville served as the capital of Free France in Africa, with Charles de Gaulle directing Free French territories from the city between 1940 and 1943.
-- **Culture:** La Sape (Society of Ambianceurs and Elegant People), a subculture built around flamboyant, meticulously coordinated dandy fashion, is closely associated with Congolese identity in Brazzaville and its diaspora.
-- **Politics:** The Republic of the Congo is a presidential republic; a 2015 constitutional referendum removed the previous limits on presidential age and terms, extending the incumbent's eligibility to run.
-- **Local pride:** Congolese in Brazzaville take pride in their warmth and hospitality, and in a musical heritage that has carried wide influence across Central Africa.
+- The Republic of the Congo was officially the People's Republic of the Congo, described as the first Marxist-Leninist state in Africa, from around 1970 until the name was dropped in 1991.
+- Brazzaville and Kinshasa, the capitals of the two Congos, face each other across the Congo River, the only place where two national capitals developed on opposite banks of a river within sight of each other.
+- **History:** During World War II Brazzaville served as the capital of Free France from 1940 to 1943, during the leadership of Charles de Gaulle.
+- **Culture:** La Sape (Société des Ambianceurs et des Personnes Élégantes), a movement of flamboyant, meticulously coordinated dandy dress, is associated with Brazzaville, Kinshasa and their diaspora in Paris.
+- **Politics:** The Republic of the Congo is a unitary semi-presidential republic; a constitution approved by an October 2015 referendum let the incumbent president run for a third consecutive term in 2016 and created a prime minister accountable to the legislature.
+- **Local pride:** Congolese in Brazzaville take pride in Congolese rumba, inscribed by UNESCO in 2021 as intangible cultural heritage jointly with the Democratic Republic of the Congo.
 
 ## Congo-Kinshasa
 
-- The Democratic Republic of the Congo contains most of the Congo Basin, the second-largest contiguous rainforest in the world after the Amazon.
-- The DRC produces the large majority of the world's mined cobalt, a mineral essential to lithium-ion batteries used in phones and electric vehicles.
+- The Democratic Republic of the Congo lies within the Congo Basin, whose rainforest is second only to the Amazon in size.
+- The DRC produced over 80 percent of the world's mined cobalt in 2024, a metal used primarily in lithium-ion batteries.
 - **History:** Belgian King Leopold II's personal rule over the Congo Free State from 1885 to 1908 involved forced rubber labor and violent abuses that killed millions, prompting international outcry that led the Belgian state to formally annex the territory as a colony in 1908.
-- **Culture:** Congolese rumba, blending Cuban rumba influences with local Congolese rhythms and guitar styles, became one of Africa's most influential music genres and was jointly inscribed by UNESCO (with the Republic of the Congo) as intangible cultural heritage.
-- **Politics:** The DRC is a semi-presidential republic organized, under its 2006 constitution, into 26 decentralized provinces.
-- **Local pride:** Congolese people take pride in their nation's vast diversity of languages and ethnic communities, and in a long-standing tradition of sculpture and visual art recognized in museums worldwide.
+- **Culture:** Congolese rumba grew out of Bakongo maringa dance music under the influence of Cuban son records and bands in the 1940s and 1950s, and was jointly inscribed by UNESCO with the Republic of the Congo as intangible cultural heritage in 2021.
+- **Politics:** The DRC is a unitary semi-presidential republic whose 2006 constitution divides it into 26 provinces, counting the capital Kinshasa, which has province status.
+- **Local pride:** Congolese people take pride in their linguistic diversity: French is the official language, four national languages (Kikongo-Kituba, Lingala, Swahili and Tshiluba) are recognized, and an estimated 242 languages are spoken.
 
 ## Costa Rica
 
-- Costa Rica permanently abolished its military in 1949, redirecting the funds once spent on armed forces toward education and healthcare.
-- Costa Rica generates nearly all of its electricity, close to 100 percent in many recent years, from renewable sources including hydropower, geothermal, and wind.
-- **History:** The brief 1948 Costa Rican Civil War, triggered by a disputed presidential election, ended with a new 1949 constitution that also granted women the right to vote and full citizenship to the country's Afro-Costa Rican community, descendants of Caribbean immigrant railroad and banana workers.
-- **Culture:** "Pura vida," literally "pure life," is a ubiquitous Costa Rican phrase used as greeting, farewell, and general expression of an easygoing, positive outlook central to national identity.
-- **Politics:** Costa Rica is a presidential republic that holds regular multiparty elections and is often cited as having the longest continuously stable democratic tradition in Latin America, dating to the late 1940s.
-- **Local pride:** Costa Ricans, or "Ticos," take strong pride in their tradition of peaceful, stable governance and in the country's global reputation for environmental conservation and biodiversity.
+- Costa Rica abolished its standing army in 1948-49, a ban enshrined in its 1949 constitution, and its former military budget now goes to health care and education.
+- Costa Rica generates nearly all of its electricity from renewable sources, about 98 percent in 2016 and 99.6 percent in 2019, mostly hydropower, wind and geothermal.
+- **History:** The 44-day Costa Rican Civil War of 1948 began after Congress annulled the result of a disputed presidential election, ended with the Pact of the Mexican Embassy, and led to a 1949 constitution that guaranteed universal suffrage.
+- **Culture:** "Pura vida," literally "pure life," is a Costa Rican phrase used as a greeting or as a reply to "How are you?" and reflects a simple, stress-free outlook.
+- **Politics:** Costa Rica is a presidential, representative democratic republic with a multiparty system and a directly elected president serving four-year terms, and the Economist Intelligence Unit rated it a 'full democracy' in 2023.
+- **Local pride:** Costa Ricans, or "Ticos," take pride in gallo pinto, the rice-and-beans dish usually eaten at breakfast and considered the national dish.
 
 ## Côte d'Ivoire
 
-- Côte d'Ivoire is the world's largest producer of cocoa beans, supplying roughly 40 percent of the global supply.
-- Yamoussoukro, the country's official political capital, is home to the Basilica of Our Lady of Peace, built in the 1980s to resemble St. Peter's Basilica and often cited as one of the largest church buildings in the world.
+- Côte d'Ivoire is the world's largest producer of cocoa beans, supplying about 38 percent of global output in 2024.
+- Yamoussoukro, the country's political capital, is home to the Basilica of Our Lady of Peace, built between 1985 and 1989 with a dome inspired by St. Peter's Basilica and listed by Guinness World Records as the world's largest church.
 - **History:** Côte d'Ivoire endured two civil wars, from 2002 to 2007 and again from 2010 to 2011, with the second triggered by a disputed presidential election result and ended only after French and UN forces intervened.
-- **Culture:** Coupé-décalé, an upbeat dance music genre that emerged among Ivorian diaspora communities in Paris nightclubs in the early 2000s, spread rapidly to become a major pan-African pop culture phenomenon.
-- **Politics:** Côte d'Ivoire is a presidential republic whose political history has featured recurring disputes over "Ivoirité," a concept of national identity and eligibility for office that has factored into past electoral crises.
-- **Local pride:** Ivorians take pride in their country's role as a major economic hub in West Africa and in the passionate following of their national football team.
+- **Culture:** Coupé-décalé, an upbeat dance music genre, took shape in the early 2000s among Ivorian diaspora club performers in Paris, known for flashy fashion and money-throwing displays.
+- **Politics:** Côte d'Ivoire is a presidential republic in which the concept of "Ivoirité" was used by President Henri Konan Bédié to exclude rival Alassane Ouattara from the presidential race.
+- **Local pride:** Ivorians take pride in their national football team, the Elephants, who won the Africa Cup of Nations in 1992, 2015 and, as hosts, 2023.
 
 ## Croatia
 
@@ -545,394 +536,394 @@
 - **History:** Croatia declared independence from Yugoslavia in 1991, triggering the Croatian War of Independence, which continued until 1995.
 - **Culture:** Klapa singing, a traditional style of a cappella multi-part harmony singing from the Dalmatian coast, is recognized by UNESCO as intangible cultural heritage.
 - **Politics:** Croatia is a parliamentary republic that joined the European Union in 2013 as its 28th member and adopted the euro as its official currency in 2023.
-- **Local pride:** Croatians take pride in their Adriatic seafaring heritage and in the national football team's strong international performances, widely seen as a unifying source of national pride.
+- **Local pride:** Croatians take pride in their national football team reaching the 2018 World Cup final and finishing third at the 2022 World Cup.
 
 ## Cuba
 
-- Cuba has one of the highest doctor-to-population ratios in the world and has long sent thousands of medical personnel abroad through government-run "medical internationalism" missions.
-- Classic American cars from the 1950s remain in everyday use across Cuba decades later, largely a byproduct of the long-standing US trade embargo restricting the import of new vehicles.
-- **History:** The 1959 Cuban Revolution, led by Fidel Castro, overthrew the Batista government and established Cuba as the first communist state in the Western Hemisphere.
-- **Culture:** Cuba is the birthplace of son cubano, the musical foundation for what later became salsa, and Cuban cigars remain internationally renowned as a cultural export.
-- **Politics:** Cuba is a one-party socialist republic governed by the Communist Party of Cuba, which its constitution names as the only legally permitted political party.
-- **Local pride:** Cubans commonly take pride in their resourcefulness and communal resilience sustained through decades of economic hardship, and in a strong sense of national identity and solidarity.
+- Since 1963 Cuba has sent medical personnel abroad through government-run "medical internationalism" missions, with about 42,000 workers in 103 countries in 2007.
+- Up to 60,000 American-made cars remain in use in Cuba, kept running with modified engines and parts since the US embargo ended imports of American cars and parts in 1960.
+- **History:** The Cuban Revolution, led by Fidel Castro's 26th of July Movement, overthrew Fulgencio Batista's government on 1 January 1959, and the movement later became the Communist Party of Cuba in 1965.
+- **Culture:** Cuba is the birthplace of son cubano, which originated in eastern Cuba in the late 19th century and is called the foundation on which salsa was created.
+- **Politics:** Cuba is a one-party Marxist-Leninist socialist republic whose 2019 constitution describes the Communist Party of Cuba as the leading force of society and the state, and the party is the only legal party.
+- **Local pride:** Cubans take pride in the 1961 National Literacy Campaign, in which about 100,000 young volunteer brigadistas and others helped some 707,000 Cubans become literate, raising the literacy rate to about 96 percent by 1962.
 
 ## Curaçao
 
 - Blue Curaçao liqueur takes its flavour from the dried peel of the laraha, a bitter orange that grows on the island.
 - Papiamentu, a Portuguese- and Spanish-influenced creole, is the most widely spoken language and is an official language alongside Dutch and English.
-- **History:** The Dutch West India Company took the island from Spain in 1634 and developed it into a major hub of the Atlantic slave trade, and an enslaved people's revolt broke out in 1795.
-- **Culture:** Carnival features the tumba, a Curaçao-born music competition and dance style, with large parades running through the season.
-- **Politics:** Since 10 October 2010 Curaçao has been a constituent country of the Kingdom of the Netherlands, with its own parliament and prime minister while the Kingdom handles defence and foreign affairs.
-- **Local pride:** Islanders are proud of their multilingual, mixed-heritage society, where many people move easily between Papiamentu, Dutch, Spanish and English.
+- **History:** The Dutch West India Company took the island from Spain in 1634 and developed it into a major hub of the Atlantic slave trade, and a revolt by enslaved people broke out in 1795.
+- **Culture:** Tumba, a music genre of African origin named for its rhythm and conga drums, is especially popular during Curaçao's Carnival and is part of the Carnival Road March.
+- **Politics:** Since 10 October 2010, after the dissolution of the Netherlands Antilles, Curaçao has been a constituent country of the Kingdom of the Netherlands.
+- **Local pride:** Islanders take pride in Seú, a harvest festival tradition in which workers marched crops to warehouses, now marked by an annual Easter Monday parade in Willemstad alongside tambú music born among enslaved people.
 
 ## Cyprus
 
 - Cyprus has been divided since 1974 by a UN-patrolled buffer zone that runs straight through its capital, Nicosia, making it the last divided capital city in Europe.
-- Archaeological sites near Kissonerga on Cyprus contain some of the oldest known water wells in the world, dated to roughly 10,500 years ago.
+- The Kissonerga-Mylouthkia site on Cyprus holds the oldest reliably dated well, from around 8400 BC, roughly 10,400 years ago.
 - **History:** In 1974 a Greek-backed coup was followed by a Turkish military intervention, resulting in the island's de facto partition into a Greek Cypriot south and Turkish Cypriot north that persists today.
-- **Culture:** Cypriot dining centers on meze, a long spread of small shared dishes, and halloumi, a cheese that originated on the island and now carries EU protected designation of origin status.
-- **Politics:** The Republic of Cyprus is a presidential republic governing the southern two-thirds of the island; the northern third is administered by the self-declared 'Turkish Republic of Northern Cyprus,' which is recognized only by Turkey, while the UN maintains a buffer zone between the two.
-- **Local pride:** A strong sense of hospitality and village-rooted community life, expressed through generous shared meals and close extended-family ties.
+- **Culture:** Halloumi, a cheese that originated in Cyprus and is first recorded around 1554, is protected as an EU protected designation of origin product and is a traditional food shared by Greek and Turkish Cypriots.
+- **Politics:** The Republic of Cyprus is a presidential republic controlling about 60 percent of the island; the northern third, about 35 percent, is administered by the self-declared 'Turkish Republic of Northern Cyprus,' which is recognized only by Turkey, while a UN buffer zone separates the two.
+- **Local pride:** Cypriots take pride in Commandaria, a sweet wine from sun-dried grapes with EU protected designation of origin, produced in 14 villages and widely described as the world's oldest named wine still in production.
 
 ## Czechia
 
-- Czechia has recorded the highest per-capita beer consumption of any country in the world for decades running.
-- Prague's astronomical clock, first installed in 1410, is the oldest astronomical clock still operating anywhere.
-- **History:** Czechoslovakia peacefully split into the Czech Republic and Slovakia on January 1, 1993, an event known as the Velvet Divorce.
-- **Culture:** Pilsner-style lager, first brewed in Plzeň in 1842, remains central to Czech social life, alongside a marionette and puppet-theater tradition recognized by UNESCO.
-- **Politics:** Czechia is a parliamentary republic with a bicameral parliament; the president is directly elected but holds a largely ceremonial role, with day-to-day executive power resting with the prime minister and cabinet.
-- **Local pride:** Deep pride in beer brewing craft and the ritual of gathering at the local pub.
+- Czechia has the highest per-capita beer consumption of any country in the world, at 126 litres per person in 2024.
+- The oldest parts of Prague's astronomical clock, its mechanical clock and astronomical dial, date back to 1410, with a calendar dial added around 1490.
+- **History:** Czechoslovakia was peacefully dissolved at the end of 1992, and the Czech Republic became an independent state on January 1, 1993.
+- **Culture:** Pilsner-style lager, first brewed in Plzeň in 1842, remains central to Czech social life, and Czech beer culture was added to the national intangible cultural heritage list in 2025.
+- **Politics:** Czechia is a parliamentary republic with a bicameral parliament; the president is directly elected for up to two five-year terms with limited executive powers, while the cabinet led by the prime minister is the supreme executive body.
+- **Local pride:** Czechs take pride in ice hockey, with Olympic gold at Nagano in 1998 and seven men's world championship titles, including three straight from 1999 to 2001.
 
 ## Denmark
 
-- Denmark is widely considered the oldest continuous monarchy in Europe, with roots traced back over a thousand years to Gorm the Old.
-- Denmark consistently ranks among the world's least corrupt and happiest countries in international surveys.
+- The extant Danish monarchy traces its roots back to Gorm the Old, who established his reign in the early 10th century.
+- Denmark ranked first on Transparency International's 2025 Corruption Perceptions Index with a score of 89, ahead of Finland (88).
 - **History:** In 1849 Denmark adopted the June Constitution, converting the country from an absolute monarchy into a constitutional monarchy with an elected parliament.
-- **Culture:** The concept of 'hygge,' a feeling of cozy contentment, runs through everyday Danish life, alongside an everyday cycling culture in which bikes outnumber cars in Copenhagen.
+- **Culture:** The concept of 'hygge,' a feeling of cozy contentment, runs through everyday Danish life, alongside a cycling culture in which Copenhagen has about 560,000 bicycles, more than its number of people.
 - **Politics:** Denmark is a constitutional monarchy with a unicameral parliament, the Folketing; the wider Kingdom of Denmark also includes the self-governing territories of Greenland and the Faroe Islands.
-- **Local pride:** Pride in a cycling-centered, egalitarian daily life and the shared value of 'hygge'-style contentment over material excess.
+- **Local pride:** Danes take pride in the folk high school (folkehøjskole) tradition of residential adult education, which began in Rødding in 1844.
 
 ## Djibouti
 
 - Djibouti hosts military bases from multiple foreign powers at once, including the United States, France, Japan, and China, whose base there opened in 2017 as its first-ever overseas military installation.
-- Djibouti contains Lake Assal, the lowest point on the African continent and one of the saltiest bodies of water on Earth.
+- Djibouti contains Lake Assal, which lies 155 m below sea level, the lowest point on land in Africa.
 - **History:** Djibouti gained independence from France in 1977, having previously been known as French Somaliland and later the French Territory of the Afars and the Issas.
-- **Culture:** Chewing qat (khat) leaves in daily afternoon social gatherings is a widespread and deeply rooted custom across Djiboutian society.
-- **Politics:** Djibouti is a semi-presidential republic with a unicameral National Assembly; it has been governed under a single ruling party coalition for most of its post-independence history.
-- **Local pride:** Pride in Afar and Somali nomadic heritage and in the country's role as a hospitable trading crossroads of the Horn of Africa.
+- **Culture:** Somali and Afar communities share Djibouti with Arabic and French as official languages; Afar men traditionally carry the jile, a curved knife, and Somali oral tradition includes gabaye poetry that recorded community history.
+- **Politics:** Djibouti is a presidential republic with a 65-seat National Assembly; the Union for the Presidential Majority won 57 of 65 seats in the 2018 election, and the People's Rally for Progress was the only legal party from 1981 until 1992.
+- **Local pride:** Djiboutians take pride in their ports, which serve as the main sea outlet for landlocked Ethiopia.
 
 ## Dominica
 
-- Dominica is nicknamed 'The Nature Isle of the Caribbean' for its rugged volcanic terrain, including the Boiling Lake, the second-largest hot lake in the world.
-- Dominica is home to the Kalinago Territory, the last community lands in the Caribbean where descendants of the indigenous Kalinago (Carib) people still hold communal land.
+- Dominica is nicknamed 'The Nature Island of the Caribbean' for its rugged volcanic terrain, including the Boiling Lake, described as the world's second-largest hot spring.
+- Dominica is home to the Kalinago Territory, the largest settlement of indigenous people in the Caribbean, where residents share communal ownership of all land.
 - **History:** Dominica gained independence from the United Kingdom on November 3, 1978.
-- **Culture:** Dominican Creole (Kwéyòl), a French-based patois, is widely spoken alongside English, and the annual World Creole Music Festival celebrates this Creole heritage.
-- **Politics:** Dominica is a parliamentary republic with a largely ceremonial president and a unicameral House of Assembly; it also runs a citizenship-by-investment program that is a significant source of government revenue.
-- **Local pride:** Pride in strong environmental stewardship and in the resilience shown rebuilding daily life after major hurricanes.
+- **Culture:** Dominican Creole French is spoken as a vernacular, and the annual three-day World Creole Music Festival, held on the final weekend of October, celebrates Creole heritage.
+- **Politics:** Dominica is a parliamentary republic with a largely ceremonial president and a unicameral House of Assembly; it also operates a Citizenship by Investment program.
+- **Local pride:** Dominicans take pride in the Sisserou parrot, the national bird, which appears on the flag, one of only two sovereign national flags to feature purple.
 
 ## Dominican Republic
 
-- The Dominican Republic shares the island of Hispaniola with Haiti, making it the only Caribbean island divided between two sovereign nations.
-- Santo Domingo, its capital, is traditionally credited with the oldest cathedral, oldest university, and oldest paved street in the Americas.
+- The Dominican Republic shares the island of Hispaniola with Haiti, one of only two Caribbean islands divided between sovereign states, the other being Saint Martin.
+- Santo Domingo is home to the Catedral Santa María La Menor, described as the first cathedral in the Americas, and the Universidad Autónoma de Santo Domingo, established in 1538 and called the oldest university in the Americas.
 - **History:** The Dominican Republic declared independence from Haitian rule on February 27, 1844, an event celebrated annually as Dominican Independence Day.
-- **Culture:** Merengue and bachata, two of Latin America's most recognizable music and dance styles, both originated in the Dominican Republic.
-- **Politics:** The Dominican Republic is a presidential representative democracy with a bicameral National Congress and a directly elected president limited to consecutive terms.
-- **Local pride:** Pride in producing an outsized share of the world's professional baseball talent, and in a warm, sociable culture centered on extended family and neighborhood gatherings.
+- **Culture:** Merengue, driven by the güira and tambora, is native to the Dominican Republic, and bachata, a guitar-based genre, began in its countryside before developing in Santo Domingo's shantytowns in the 1960s.
+- **Politics:** The Dominican Republic is a presidential republic with a bicameral National Congress; the president is directly elected for a four-year term with no immediate re-election.
+- **Local pride:** Dominicans take pride in baseball: as of the 2025 season, Baseball Reference lists 936 Dominican-born players who have appeared on an MLB roster as batters.
 
 ## Ecuador
 
 - Ecuador is named for the equator, which crosses the country, and it has used the U.S. dollar as its official currency since replacing the sucre in 2000.
-- The 'Panama hat' is in fact an Ecuadorian invention, traditionally hand-woven from toquilla straw in towns like Montecristi and Cuenca.
+- The 'Panama hat' is actually made in Ecuador from toquilla straw, with the finest hats called Montecristis after the town where they are produced; it takes its name from the Panama port from which it was shipped.
 - **History:** In 2008 Ecuador became the first country in the world to enshrine legal rights of nature directly in its national constitution.
-- **Culture:** Ecuadorian cuisine and craft traditions vary sharply by region, from Andean highland dishes to Amazonian and coastal specialties, reflecting the country's three distinct geographic zones.
-- **Politics:** Ecuador is a presidential republic with a unicameral National Assembly; the country has adopted around 20 different constitutions since independence, more than almost any other nation.
-- **Local pride:** Pride in the country's remarkable natural diversity across highland, coastal, and rainforest ways of life, and in home-grown products like cacao that anchor local livelihoods and cuisine.
+- **Culture:** Quito's historic centre was among the first sites placed on UNESCO's World Heritage List, in 1978, and Ecuador's toquilla straw weaving is also recognised by UNESCO as intangible heritage.
+- **Politics:** Ecuador is a presidential republic with a National Assembly, operating under a constitution adopted in 2008.
+- **Local pride:** Ecuadorians take pride in their banana industry: Ecuador is the world's largest banana exporter, with exports of $3.38 billion in 2017.
 
 ## Egypt
 
-- The Great Pyramid of Giza held the record as the tallest human-made structure in the world for almost 3,800 years.
-- The Suez Canal, opened in 1869, remains one of the world's most heavily used shipping routes and a major source of Egyptian national revenue.
-- **History:** The 1952 revolution overthrew Egypt's monarchy and established a republic, eventually bringing Gamal Abdel Nasser to power.
-- **Culture:** Egyptian film and music historically dominated the Arabic-speaking world, earning Cairo the nickname 'Hollywood of the Middle East.'
-- **Politics:** Egypt is a presidential republic with a bicameral parliament; the military holds a substantial and longstanding role in the country's economy alongside its political influence.
-- **Local pride:** Pride in being heirs to one of the world's oldest continuous civilizations, and in the daily ritual of gathering over tea and shared meals that anchors Egyptian social life.
+- The Great Pyramid of Giza was the world's tallest human-made structure for more than 3,700 years.
+- The Suez Canal, opened on 17 November 1869, was used by more than 20,600 vessels in 2021, and its revenue has long been important to Egypt.
+- **History:** The Free Officers coup of July 1952 led to the abolition of Egypt's monarchy in June 1953, and Gamal Abdel Nasser was elected president in 1956.
+- **Culture:** Egypt produces about three-quarters of the Arab world's screen output as of 2024, and Cairo is sometimes called the 'Hollywood of the Middle East.'
+- **Politics:** Egypt is a semi-presidential republic with a directly elected president and a bicameral parliament, the House of Representatives and the Senate, which was reinstated by 2019 amendments and first elected in 2020.
+- **Local pride:** Egyptians take pride in football and the national team's record seven Africa Cup of Nations titles, including three in a row in 2006, 2008 and 2010.
 
 ## El Salvador
 
-- In 2021 El Salvador became the first country in the world to adopt Bitcoin as legal tender.
-- El Salvador is the smallest country by area and the most densely populated in mainland Central America.
-- **History:** El Salvador endured a civil war from 1979 to 1992 that ended with UN-brokered peace accords signed in Chapultepec, Mexico.
-- **Culture:** Pupusas, thick corn or rice-flour tortillas stuffed with cheese, beans, or pork, are considered the national dish and are honored with an official National Pupusa Day each November.
-- **Politics:** El Salvador is a presidential republic with a unicameral Legislative Assembly; the government has maintained a prolonged state of emergency since 2022 as part of a large-scale anti-gang crackdown.
-- **Local pride:** Pride in a strong work ethic often described locally as being 'trabajador,' and in tight-knit family and community bonds that persist across the Salvadoran diaspora.
+- In 2021 El Salvador became the first country to make Bitcoin legal tender, though it rescinded that status in February 2025 under an IMF agreement.
+- El Salvador covers 21,041 square kilometres and has a population density of about 287 people per square kilometre.
+- **History:** El Salvador's civil war, which began in 1979, concluded with the signing of the Chapultepec Peace Accords in 1992.
+- **Culture:** Pupusas, thick cornmeal or rice-flour griddle cakes stuffed with cheese, refried beans or chicharrón, are the national dish, with National Pupusa Day held on the second Sunday of November since 2005.
+- **Politics:** El Salvador is a unitary presidential republic with a Legislative Assembly.
+- **Local pride:** Salvadorans take pride in their Pacific surf scene, branded Surf City El Salvador, which hosted the 2023 ISA World Surfing Games at La Bocana and El Sunzal, an event that counted toward qualification for the 2024 Olympic surfing competition.
 
 ## Equatorial Guinea
 
-- Equatorial Guinea is the only country in Africa with Spanish as an official language, a legacy of Spanish colonial rule.
-- Despite substantial oil wealth giving it one of Africa's highest GDP-per-capita figures, the country also has some of the continent's widest gaps between average income and typical living standards.
+- Equatorial Guinea is the only sovereign country in Africa where Spanish is an official language, a legacy of Spanish colonial rule.
+- Equatorial Guinea has three official languages, Spanish, French and Portuguese, the last added in 2010, although Spanish is the main language.
 - **History:** Equatorial Guinea gained independence from Spain in 1968, having previously been governed as Spanish Guinea.
-- **Culture:** The Bubi and Fang peoples maintain distinct traditions, including Fang byeri reliquary carving and communal balélé dance performances.
-- **Politics:** Equatorial Guinea is a presidential republic; its head of state has held office continuously since 1979, one of the longest tenures of any sitting head of state in the world.
-- **Local pride:** Pride in a bicultural Spanish-and-Central-African identity, and in strong extended-family and community bonds that anchor daily life across the country's mainland and island communities.
+- **Culture:** The Bubi of Bioko perform the balélé dance and the abira celebration believed to cleanse the community of evil.
+- **Politics:** Equatorial Guinea is a presidential republic in which President Teodoro Obiang Nguema has held power since 1979; it is described as an authoritarian system dominated by the Democratic Party of Equatorial Guinea.
+- **Local pride:** Equatorial Guineans, especially the Fang, take pride in the mvet, a zither-harp with up to fifteen strings whose call-and-response music is learned by initiates of the bebom-mvet society.
 
 ## Eritrea
 
 - Eritrea's capital, Asmara, is a UNESCO World Heritage Site prized for its unusually well-preserved collection of Italian modernist buildings from the colonial era.
 - Eritrea operates an indefinite national service program for young adults and is regularly cited among the most restrictive media environments in the world.
-- **History:** Eritrea achieved independence from Ethiopia in 1993 after a roughly 30-year armed struggle, one of the longest independence wars in African history.
-- **Culture:** The Eritrean coffee ceremony, in which green beans are roasted, ground, and brewed by hand and served over three rounds, is a central social ritual.
-- **Politics:** Eritrea is a one-party state that has held no national elections since independence and has never brought a permanent constitution into force.
-- **Local pride:** Pride in the resilience and self-reliance forged through the long independence struggle, and in close-knit community bonds expressed through everyday hospitality.
+- **History:** Eritrea achieved de jure independence from Ethiopia in 1993 following a referendum, after a roughly 30-year independence war.
+- **Culture:** The Eritrean coffee ceremony, with coffee served in three rounds called awel, kalaay and bereka, is one of the most recognizable parts of Eritrean culture.
+- **Politics:** Eritrea is a one-party state that has held no national elections since independence, and its 1997 constitution has never been implemented.
+- **Local pride:** Eritreans take pride in cycling, one of the country's two most popular sports, with the Tour of Eritrea stage race dating to 1946 and Eritrean riders competing in the Tour de France and Giro d'Italia.
 
 ## Estonia
 
-- Estonia is a global pioneer in digital government, allowing citizens to vote, file taxes, and access nearly all public services online, and it is the birthplace of Skype.
-- Estonia produces one of the highest numbers of billion-dollar tech startups per capita of any country in the world.
-- **History:** Estonia restored its independence from the Soviet Union in 1991 following the largely nonviolent 'Singing Revolution' of the late 1980s.
-- **Culture:** Estonia's national Song Festival, a UNESCO-recognized tradition, brings tens of thousands of amateur singers together in mass choral performances held roughly every five years.
-- **Politics:** Estonia is a parliamentary republic and is internationally known for its e-Residency program, which lets non-residents establish and run EU-registered businesses entirely online.
-- **Local pride:** Pride in a spirit of quiet self-reliance and resourcefulness, reflected in a strong everyday connection to forests and nature across both rural and city life.
+- Estonia was the first country to introduce nationwide binding internet voting (51% of votes in the 2023 parliamentary election were cast online), and Skype was developed by Estonia-based engineers.
+- As of January 2022 Estonia had about 1,291 startups, roughly one per 1,000 Estonians, which Wikipedia describes as the highest startups-per-person ratio in the world.
+- **History:** Estonia's full independence from the Soviet Union was restored on 20 August 1991, following the 1988-1990 'Singing Revolution'.
+- **Culture:** Estonia's national Song Festival, inscribed on UNESCO's Intangible Cultural Heritage list in 2008, is typically held every five years and brings more than 30,000 singers together in a joint choir.
+- **Politics:** Estonia is a parliamentary republic whose 101-member unicameral Riigikogu elects the president, who serves as head of state, or a special electoral college does.
+- **Local pride:** Estonians take pride in their schools: in PISA 2022, Estonian 15-year-olds ranked first in Europe in mathematics and science and second in Europe in reading, behind Ireland.
 
 ## Eswatini
 
-- Eswatini has two capital cities: Mbabane, the country's administrative capital, and Lobamba, its royal and legislative capital.
-- Eswatini has recorded among the highest HIV prevalence rates of any country, prompting extensive national public health campaigns.
+- Eswatini has two capital cities: Mbabane, the executive capital, and Lobamba, the legislative capital.
+- As of 2019, Eswatini had the highest prevalence of HIV among people aged 15 to 49 in the world, at 27.1%.
 - **History:** The country officially changed its name from Swaziland to Eswatini in 2018, marking the 50th anniversary of its independence from Britain.
-- **Culture:** The annual Umhlanga, or Reed Dance, in which unmarried women present freshly cut reeds to the queen mother, is one of the country's largest cultural ceremonies.
-- **Politics:** Eswatini is an absolute monarchy in which the king holds supreme executive and legislative authority, and political parties are barred from contesting parliamentary elections.
-- **Local pride:** Pride in vibrant seasonal ceremonial traditions and in a strong sense of communal, extended-family life across both rural and urban Eswatini.
+- **Culture:** In the annual eight-day Umhlanga, or Reed Dance, tens of thousands of unmarried, childless girls and women cut reeds and present them to the Queen Mother.
+- **Politics:** Eswatini is an absolute monarchy in which the king appoints the prime minister and a majority of senators, and political parties are prohibited from contesting elections.
+- **Local pride:** Eswatini's people take pride in siSwati, their national language, which is spoken natively by about 95 percent of Swazis and is co-official with English, including in Parliament.
 
 ## Ethiopia
 
-- Ethiopia is the only African country never colonized by a European power, aside from a brief Italian occupation from 1936 to 1941.
-- Ethiopia follows its own calendar, running roughly seven to eight years behind the Gregorian calendar, along with its own clock-keeping convention.
-- **History:** At the Battle of Adwa in 1896, Ethiopian forces decisively defeated an invading Italian army, preserving the country's independence during the era of European colonization of Africa.
-- **Culture:** Ethiopia is widely regarded as the birthplace of coffee, and the elaborate Ethiopian coffee ceremony remains a cornerstone of daily social life.
+- Ethiopia, along with Liberia, is one of the only African countries never fully colonized by Europeans, although Italy occupied it from 1936 to 1941.
+- Ethiopia uses its own calendar, which runs about seven to eight years behind the Gregorian calendar and has a 13th month of five or six days.
+- **History:** On 1 March 1896, Ethiopian forces defeated Italian colonial forces at the Battle of Adwa.
+- **Culture:** Ethiopia is often considered the birthplace of coffee, with cultivation beginning in the 9th century.
 - **Politics:** Ethiopia is a federal parliamentary republic composed of ethnically based regional states, with a bicameral legislature made up of the House of People's Representatives and the House of Federation.
-- **Local pride:** Pride in a long history of resilience and self-determination, and in strong traditions of communal hospitality expressed through shared meals and mutual support.
+- **Local pride:** Ethiopians are proud of their distance runners: through Paris 2024 Ethiopia had won 62 Olympic medals (24 gold), all in athletics.
 
 ## Falkland Islands
 
 - Five species of penguin breed on the islands: gentoo, king, southern rockhopper, Magellanic and macaroni.
 - The local currency, the Falkland Islands pound, is pegged at par to the pound sterling.
 - **History:** Argentine forces invaded on 2 April 1982 and the conflict ended with their surrender on 14 June 1982.
-- **Culture:** The mid-morning tea break known as smoko is a long-standing island tradition, and peat cutting for fuel was historically part of rural life.
-- **Politics:** The islands are a self-governing British Overseas Territory with an elected Legislative Assembly and a Governor representing the Crown, while the UK is responsible for defence and foreign affairs; Argentina claims sovereignty, a claim the islands' government rejects, and in a 2013 referendum a large majority voted to remain a UK Overseas Territory.
-- **Local pride:** Islanders are proud of their self-reliance and tight-knit community, built on sheep farming, fishing and looking after one another in a remote place.
+- **Culture:** Peat was once a main heating fuel in the Falklands, and stacks of drying peat can still be seen at some houses in Stanley; 'smoko', a smoking break, is among the local terms in everyday speech.
+- **Politics:** The Falkland Islands are a British Overseas Territory with a unicameral Legislative Assembly and a Governor who exercises executive authority on the monarch's behalf, while the UK takes responsibility for defence and foreign affairs; Argentina disputes British sovereignty, and in a 2013 referendum 99.8% of votes cast favoured remaining a British overseas territory.
+- **Local pride:** Islanders take pride in the two-day Christmas horse-racing meeting held each 26 and 27 December at Stanley Racecourse, a tradition of over 100 years.
 
 ## Faroe Islands
 
-- The archipelago has 18 islands, linked by an extensive network of subsea tunnels and bridges that includes an underwater roundabout.
-- Faroese is a North Germanic language descended from Old Norse, and it is the main language of daily life.
-- **History:** The Løgting, the Faroese parliament, traces its origins to Viking-age assemblies around the year 900, making it one of the oldest parliaments in the world.
-- **Culture:** The Faroese chain dance, performed to sung ballads called kvæði, is a living tradition still danced at gatherings and festivals.
-- **Politics:** The Faroe Islands are a self-governing nation within the Kingdom of Denmark under the 1948 Home Rule Act, with their own parliament and government, and two seats in the Danish Folketing.
-- **Local pride:** Islanders take pride in preserving the Faroese language and their ballad and chain-dance tradition, alongside a fishing-based way of life.
+- The Faroe Islands have 18 major islands, several linked by bridges, causeways and four subsea tunnels, one of which, the Eysturoy tunnel, has what is described as the world's first undersea roundabout.
+- Modern Faroese evolved from the Old West Norse dialect brought by the islands' Viking-age settlers.
+- **History:** The Løgting, the Faroese parliament, was already established by the mid-10th century according to the Færeyinga saga, and it claims to be one of the oldest continuously running parliaments in the world.
+- **Culture:** Faroese folk songs called kvæði, often set to music and the medieval chain dance, are still in use today.
+- **Politics:** The Faroe Islands are a self-governing nation within the Kingdom of Denmark, with home rule in effect since 1948, their own parliament and government, and two seats in the Danish Folketing.
+- **Local pride:** Faroese take pride in their national football team, which beat Austria 1-0 in its first competitive match on 12 September 1990.
 
 ## Fiji
 
 - Fiji is made up of more than 330 islands, only about a third of which are permanently inhabited.
-- Fiji is a major global exporter of bottled water, even though reliable access to clean drinking water remains limited in some rural Fijian communities.
+- Bottled water exports are among Fiji's main sources of foreign exchange.
 - **History:** Fiji gained independence from Britain in 1970 and subsequently experienced several military coups, including in 1987, 2000, and 2006.
-- **Culture:** The kava (yaqona) ceremony, in which a mildly sedative root-based drink is shared in a set ritual order, is central to welcoming guests and marking important occasions in Fijian life.
+- **Culture:** A formal kava (yaqona) ceremony, including the presentation of bundled kava roots called sevusevu and the drinking of the yaqona from a coconut half-shell called a bilo, often accompanies important social, political or religious events in Fiji.
 - **Politics:** Fiji is a parliamentary republic operating under a 2013 constitution adopted after the 2006 coup, with a unicameral Parliament elected under a proportional representation system.
-- **Local pride:** Pride in warm communal hospitality and in rugby sevens, a sport in which the national team's success is a major source of shared national celebration.
+- **Local pride:** Fijians take pride in rugby sevens: the men's team won Olympic gold at Rio 2016 and Tokyo 2020, and silver at Paris 2024.
 
 ## Finland
 
-- Finland has roughly one sauna for every two residents, with an estimated 3 million saunas serving a population of about 5.5 million.
-- Finland has close to 188,000 lakes larger than 500 square meters, giving it more lake area relative to its size than almost any other country.
-- **History:** Finland declared independence from Russia on December 6, 1917, in the chaos following the Russian Revolution.
-- **Culture:** The Finnish sauna tradition was added to UNESCO's Intangible Cultural Heritage list in 2020, recognizing its central role in daily and social life.
-- **Politics:** Finland is a parliamentary republic in which a directly elected President mainly handles foreign policy while the Prime Minister and Council of State run domestic government, answerable to the unicameral Eduskunta elected by proportional representation.
-- **Local pride:** Finns take pride in the concept of 'sisu' — a cultural ideal of quiet stoic determination and perseverance through hardship.
+- Finland has at least 2 million saunas according to official registers, with the Finnish Sauna Society estimating as many as 3.2 million, for a population of about 5.5 million.
+- Estimates of Finland's lakes larger than 500 square meters range from about 168,000 to 187,888, and water covers roughly 10 percent of its area.
+- **History:** Finland's Parliament approved a declaration of independence from Russia on December 6, 1917.
+- **Culture:** Sauna culture in Finland was added to UNESCO's Representative List of the Intangible Cultural Heritage of Humanity in 2020.
+- **Politics:** Finland is a parliamentary republic in which the President is responsible for foreign relations, excluding European Union matters, and the Parliament (Eduskunta) is elected for four years by proportional representation using the D'Hondt method.
+- **Local pride:** Finns regard 'sisu', a word for stoic determination and tenacity in the face of adversity, as an expression of their national character.
 
 ## France
 
-- France spans 12 time zones, more than any other country in the world, because of its scattered overseas territories.
-- France is consistently the world's most-visited country by international tourist arrivals, ahead of far larger nations.
-- **History:** The French Revolution began in 1789, culminating in the storming of the Bastille on July 14 and the eventual abolition of the monarchy.
-- **Culture:** The 'gastronomic meal of the French,' with its structured courses and pairing of food and wine, is inscribed on UNESCO's Intangible Cultural Heritage list.
-- **Politics:** France is a semi-presidential republic: the directly elected President sets broad policy direction while a separately appointed Prime Minister runs day-to-day government and answers to the National Assembly.
-- **Local pride:** French people commonly take pride in their language and in a broader national culture that highly values philosophy, literature, and articulate public debate as part of everyday life.
+- France spans 12 time zones, the most of any country, counting its overseas territories (13 if its Antarctic claim, Adélie Land, is included).
+- France is the world's leading tourist destination, with 102 million foreign visitors in 2025.
+- **History:** The French Revolution began in 1789, with the storming of the Bastille on July 14, and the abolition of the monarchy was proclaimed on September 22, 1792.
+- **Culture:** In November 2010 UNESCO added French gastronomy, the gastronomic meal of the French, to its intangible cultural heritage lists.
+- **Politics:** France is a semi-presidential republic: the President is directly elected for a five-year term and appoints the Prime Minister, and the National Assembly can dismiss the government by majority vote.
+- **Local pride:** French people take pride in the traditional baguette, whose artisanal know-how and culture UNESCO inscribed on its Intangible Cultural Heritage lists in 2022.
 
 ## French Guiana
 
 - It is the only part of the European Union on the South American mainland, bordering Brazil and Suriname.
 - The vast majority of its territory is covered by Amazonian rainforest, and most of the population lives along the narrow coastal strip.
-- **History:** France ran a penal colony there from 1852; convict transportation was abolished in 1938 and the colony was formally closed in 1946.
-- **Culture:** Carnival runs for weeks each year and features the Touloulous, masked women in full-body costume who lead the dance balls.
-- **Politics:** Since 2015 it has been a single territorial collectivity, the Guyane Collectivity, which is also an overseas department and region of France and an outermost region of the EU.
-- **Local pride:** Residents are proud of the region's mix of Creole, Maroon, Amerindian, Hmong and other communities and of its long Carnival tradition.
+- **History:** France sent convicts to penal colonies in French Guiana from 1852 until the system was wound up in the mid-20th century, and the territory became an overseas department in 1946.
+- **Culture:** Its Carnival, considered the longest in the world, runs from Epiphany to Ash Wednesday and features the Touloulous, fully covered masked women who attend the dance balls.
+- **Politics:** It is an overseas department and region of France and an outermost region of the EU, and since the 2015-2016 reform a single territorial collectivity, the Collectivité territoriale de Guyane, with one assembly replacing the former General and Regional Councils.
+- **Local pride:** Residents take pride in the Guiana Space Centre, Europe's Spaceport near Kourou, from which Ariane 6 and Vega C rockets are launched and which directly employed about 1,700 people in 2020.
 
 ## French Polynesia
 
-- It comprises 118 islands and atolls in five archipelagos, spread across an area of the Pacific comparable in size to Europe.
-- The English word tattoo derives from the Polynesian word tatau, and the practice is deeply rooted in Tahitian culture.
-- **History:** France established a protectorate over Tahiti in 1842, and from 1966 to 1996 it conducted nuclear tests at Moruroa and Fangataufa atolls.
-- **Culture:** The Heiva festival, held each July, features traditional dance, music, canoe races and sporting events such as stone lifting and javelin throwing.
+- It comprises 121 islands and atolls grouped into five archipelagos.
+- The English word tattoo derives from the Polynesian word tatau, and traditional Tahitian tattooing was banned by the Pomare Code that took effect in 1819.
+- **History:** France declared a protectorate over Tahiti in 1842, and French nuclear testing at Moruroa and Fangataufa atolls continued until 1996.
+- **Culture:** The Heiva i Tahiti festival, held each July, celebrates traditional dance, music and sport, including outrigger canoe racing.
 - **Politics:** It is an overseas collectivity of France, referred to as an overseas country, with its own president, assembly and a high degree of autonomy in many domestic matters.
-- **Local pride:** Polynesians are proud of their traditions of dance, music, canoe voyaging and tattooing, and of the Tahitian and other Polynesian languages.
+- **Local pride:** Polynesians take pride in their famous black Tahitian pearls, which accounted for 55% of the territory's exports by value in 2008.
 
 ## Gabon
 
-- Forests cover roughly 88% of Gabon's land area, one of the highest forest-cover percentages of any country on Earth.
-- Despite a population of only about 2.3 million, Gabon has one of sub-Saharan Africa's higher GDP-per-capita figures, driven largely by oil revenue.
-- **History:** Gabon gained independence from France on August 17, 1960, and was subsequently ruled by the Bongo family for nearly 56 consecutive years until a 2023 military takeover.
-- **Culture:** Bwiti, a spiritual tradition native to Gabon, centers on initiation ceremonies involving the psychoactive iboga root and is practiced by several Gabonese ethnic groups.
+- Forests cover about 89% of Gabon's land area.
+- Gabon has the fifth-highest GDP per capita (PPP) in sub-Saharan Africa, with oil accounting for about 43% of GDP and 81% of exports.
+- **History:** Gabon gained independence from France on August 17, 1960, and was subsequently ruled by the Bongo family for 55 years until a 2023 military coup.
+- **Culture:** Bwiti, a spiritual tradition of the Punu, Mitsogo and Fang peoples of Gabon, centres on initiation ceremonies in which participants take the psychoactive iboga root.
 - **Politics:** Gabon operates under a presidential system; after a 2023 military takeover ended the Bongo family's long rule, a transitional government led the country toward elections that saw General Brice Oligui Nguema elected president in 2025.
-- **Local pride:** Gabonese commonly take pride in their country's role as a stronghold for wildlife such as forest elephants, gorillas, and mandrills, and in national conservation efforts that have kept these populations relatively healthy even as they've declined across much of the rest of Africa.
+- **Local pride:** Gabonese take pride in their national park system: 13 parks created in 2002 now cover roughly 10% of the country's land.
 
 ## Gambia
 
 - The Gambia is mainland Africa's smallest country, a narrow strip of land following the Gambia River that is nowhere more than about 50 kilometers wide.
 - The Gambia is bordered on three sides entirely by Senegal, with only its short Atlantic coastline as an outward-facing border.
 - **History:** The Gambia gained independence from the United Kingdom on February 18, 1965; longtime ruler Yahya Jammeh's 22-year rule ended in 2017 after he lost an election and left following regional military pressure.
-- **Culture:** Griots, hereditary oral historians and musicians who often play the kora, remain central to storytelling and music across Gambian communities.
-- **Politics:** The Gambia is a presidential republic with a unicameral National Assembly, and has undergone a democratic transition since the 2017 departure of its former long-serving president.
-- **Local pride:** Gambians commonly take pride in their nation's reputation for warmth and hospitality toward visitors, reflected in the popular nickname 'The Smiling Coast.'
+- **Culture:** Gambian griots, hereditary oral historians and musicians, perform oral-tradition songs on instruments such as the kora.
+- **Politics:** The Gambia is a unitary presidential republic whose legislature is the National Assembly.
+- **Local pride:** Gambians take pride in the Kankurang, a Manding initiatory rite inscribed on UNESCO's Representative List of the Intangible Cultural Heritage of Humanity in 2008.
 
 ## Georgia
 
-- Archaeological evidence places the origins of winemaking in Georgia at roughly 8,000 years ago, among the oldest known anywhere.
-- The Georgian script is one of only a small number of alphabets in active use worldwide today, and it is used almost exclusively for the Georgian language.
-- **History:** Georgia declared independence from the Soviet Union in 1991, and in August 2008 fought a brief war with Russia centered on the breakaway region of South Ossetia.
+- Georgian winemaking dates back at least 8,000 years, with grapes cultivated and wine stored in buried clay kvevri vessels from around 6000 BC.
+- Georgia has three historic writing systems, Asomtavruli (also called Mrgvlovani), Nuskhuri and Mkhedruli, whose living culture UNESCO inscribed on its Representative List in 2016.
+- **History:** Georgia declared independence from the Soviet Union on 9 April 1991, and in August 2008 fought a war with Russia that began in South Ossetia and spread to Abkhazia and other parts of Georgia.
 - **Culture:** Georgian polyphonic singing, a distinctive multi-part vocal tradition, is recognized by UNESCO as a Masterpiece of the Oral and Intangible Heritage of Humanity.
-- **Politics:** Georgia is a parliamentary republic; the regions of Abkhazia and South Ossetia are recognized as independent states by only a small number of UN member states and are administered de facto with Russian military support, while Georgia and most of the international community regard them as part of Georgian sovereign territory.
-- **Local pride:** Georgians commonly take deep pride in a tradition of lavish hospitality toward guests, often summarized in the saying that a guest is a gift from God, expressed through generous shared feasts and toasting customs.
+- **Politics:** Georgia is a parliamentary republic; Abkhazia and South Ossetia are recognized as independent by Russia, Nicaragua and Venezuela (Syria also did in 2018, but its status is unclear after 2024), while Georgia and most of the international community regard them as Georgian territory occupied by Russia.
+- **Local pride:** Georgians take pride in the supra, the traditional feast presided over by a tamada (toastmaster) who proposes each toast in turn.
 
 ## Germany
 
-- Large stretches of Germany's Autobahn highway network have no general speed limit, a rarity among developed nations.
-- Germany is home to an estimated 1,500 distinct varieties of sausage and several hundred types of bread, reflecting deep regional culinary traditions.
+- Much of Germany's Autobahn network has no mandatory speed limit, making it among the few public roads in the world without blanket speed limits.
+- Germany produces more than 1,500 types of sausage and around 3,000 types of bread.
 - **History:** The Berlin Wall fell on November 9, 1989, paving the way for German reunification on October 3, 1990.
-- **Culture:** Munich's Oktoberfest is the world's largest beer festival, drawing several million visitors from around the globe each year.
+- **Culture:** Munich's Oktoberfest is the world's largest Volksfest (folk festival), drawing around seven million visitors a year, with a record 7.2 million in 2023.
 - **Politics:** Germany is a federal parliamentary republic in which a largely ceremonial President serves as head of state while executive power rests with the Chancellor, who is elected by the Bundestag; the Bundesrat gives the 16 federal states a direct role in national legislation.
-- **Local pride:** Germans commonly take pride in a reputation for engineering precision and craftsmanship, exemplified by the country's renowned manufacturing industries.
+- **Local pride:** Germans take pride in their national football team, four-time men's World Cup winners (1954, 1974, 1990 and 2014).
 
 ## Ghana
 
 - Ghana's Lake Volta, formed after the Akosombo Dam was completed in 1965, is the largest reservoir in the world by surface area.
-- Ghana is the world's second-largest producer of cocoa, trailing only Côte d'Ivoire.
+- Ghana was the world's largest cocoa producer in the early 1960s and has more recently been the second-largest cocoa bean exporter after Côte d'Ivoire.
 - **History:** Ghana, formerly the Gold Coast, gained independence from Britain on March 6, 1957, under the leadership of Kwame Nkrumah.
-- **Culture:** Kente cloth, a brightly patterned woven textile that originated with the Ashanti people, is a globally recognized emblem of Ghanaian identity.
-- **Politics:** Ghana is a presidential republic with a unicameral Parliament, and is frequently cited as one of Africa's more stable multiparty democracies, having seen several peaceful transfers of power between rival parties.
-- **Local pride:** Ghanaians commonly take pride in a strong culture of hospitality and communal welcome, often expressed through the greeting 'Akwaaba.'
+- **Culture:** Kente cloth, a brightly patterned woven textile associated with the Asante and Ewe peoples, is regarded as Ghana's traditional national cloth.
+- **Politics:** Ghana is a unitary presidential republic with a multi-party system and a unicameral Parliament of 276 members elected for four-year terms.
+- **Local pride:** Ghanaians take pride in the Black Stars national football team, four-time Africa Cup of Nations winners (1963, 1965, 1978 and 1982) and 2010 World Cup quarter-finalists.
 
 ## Gibraltar
 
 - The Barbary macaques here are the only wild monkeys in continental Europe.
-- The territory covers only about 6.7 square kilometres, and the main road into it crosses the airport runway.
+- The territory covers only about 6.8 square kilometres, and Winston Churchill Avenue crosses the airport runway, although the Kingsway tunnel has replaced it for routine traffic since March 2023.
 - **History:** An Anglo-Dutch force captured Gibraltar from Spain in 1704, and it was formally ceded to Britain by the Treaty of Utrecht in 1713.
 - **Culture:** Llanito, the local vernacular, blends Andalusian Spanish with English and other languages, and 10 September is celebrated as Gibraltar National Day.
 - **Politics:** Gibraltar is a self-governing British Overseas Territory with an elected parliament and chief minister, while the UK is responsible for defence and foreign affairs; Spain claims sovereignty over it, while its government and the UK maintain its status, and a 2002 referendum rejected shared sovereignty.
-- **Local pride:** Gibraltarians are proud of their distinct Llanito identity and a long record of different faiths and communities living together on a very small territory.
+- **Local pride:** Gibraltarians take pride in calentita, a baked chickpea-flour dish central to the territory's blend of Mediterranean and British cooking.
 
 ## Greece
 
-- Greece has one of the longest coastlines in the Mediterranean, stretching roughly 13,600 kilometers largely due to its thousands of islands.
-- Greece has more than 6,000 islands and islets scattered across the Aegean and Ionian Seas, of which only about 227 are inhabited.
-- **History:** Greece won independence from the Ottoman Empire following the Greek War of Independence, fought from 1821 to 1832.
-- **Culture:** Greek Orthodox Easter (Pascha) is traditionally the most important holiday of the year, marked by midnight candlelit church services and the cracking of red-dyed eggs.
-- **Politics:** Greece is a parliamentary republic with a largely ceremonial President and a unicameral Hellenic Parliament, elected under a reinforced proportional system that awards extra seats to the largest party.
-- **Local pride:** Greeks commonly take pride in the concept of 'filoxenia,' a deep-rooted tradition of hospitality toward guests and strangers.
+- Greece has a coastline of about 13,676 kilometres, the longest in the Mediterranean basin, largely due to its many islands.
+- Estimates of Greece's islands and islets range from about 1,200 to 6,000 depending on definition, and the Greek Tourism Organization counts 227 as inhabited.
+- **History:** The Greek War of Independence against the Ottoman Empire began in 1821; the London Protocol of 1830 first recognized Greece as independent and the 1832 treaties fixed its borders.
+- **Culture:** Greek Orthodox Easter (Pascha) is the most important feast of the Orthodox year, marked in Greece by a midnight Resurrection service with candles and the cracking of red-dyed eggs (tsougrisma).
+- **Politics:** Greece is a parliamentary republic with a president elected by Parliament and a single 300-member Hellenic Parliament, elected under a reinforced proportional system that gives a bonus of up to 50 seats to the largest party.
+- **Local pride:** Greeks take pride in their national football team's surprise victory at UEFA Euro 2004.
 
 ## Greenland
 
 - Greenland is the world's largest island that is not a continent, and an ice sheet covers roughly four-fifths of it.
-- Most of the population lives along the ice-free southwest coast, and there are no roads linking its towns.
-- **History:** Norse settlers led by Erik the Red arrived in the 980s, and Greenland became a Danish colony in the 18th century before gaining home rule in 1979.
-- **Culture:** Kalaallisut, the main Greenlandic language, is an Inuit language, and traditional foods such as mattak, whale skin with blubber, are still eaten.
-- **Politics:** Greenland is an autonomous territory within the Kingdom of Denmark, with the 2009 Self-Government Act giving its parliament, the Inatsisartut, authority over most domestic matters.
-- **Local pride:** Greenlanders are proud of their Inuit heritage, their language and their hunting and fishing traditions suited to a harsh Arctic environment.
+- Most of the population lives along the southwest coast, and apart from a 130 km off-road track opened in 2025 between Sisimiut and Kangerlussuaq, there are generally no roads between settlements.
+- **History:** Norse settlers led by Erik the Red arrived from 986, Denmark-Norway began colonising the island in 1721, and Greenland gained home rule in 1979.
+- **Culture:** Hunting is described by Greenland's government as central to Greenlandic culture, and mattak, whale skin with blubber, is a traditional Inuit food eaten there.
+- **Politics:** Greenland is an autonomous country within the Kingdom of Denmark; under the Self-Government Act in force since 21 June 2009, its government (Naalakkersuisut) and 31-member parliament (Inatsisartut) have taken over areas such as policing and the courts.
+- **Local pride:** Greenlanders take pride in their language: Greenlandic, whose main form Kalaallisut (West Greenlandic) is spoken alongside Danish, became the sole official language of Greenland in 2009.
 
 ## Grenada
 
-- Grenada is known as the 'Island of Spice' and has historically been one of the world's leading producers of nutmeg.
-- Grenada's national flag depicts a nutmeg, making it one of the few flags in the world to feature a spice as a national symbol.
+- Grenada is known as the 'Island of Spice' for its production of nutmeg and mace, and nutmeg is its top export.
+- Grenada's national flag, adopted in 1974, carries a nutmeg at the hoist triangle.
 - **History:** In October 1983, the United States led a military intervention in Grenada following a coup that deposed and killed Prime Minister Maurice Bishop.
-- **Culture:** Grenada's annual Spicemas Carnival features the 'Jab Jab' tradition, in which revelers cover themselves in molasses or dark oil as part of a distinctive Afro-Caribbean masquerade.
+- **Culture:** Grenada's Carnival, Spicemas, is held in August and drives the production of new soca and calypso material for the annual competition.
 - **Politics:** Grenada is a parliamentary democracy and a Commonwealth realm, with the British monarch as head of state represented locally by a Governor-General, and a bicameral Parliament.
-- **Local pride:** Grenadians commonly take pride in a close-knit community spirit spanning the islands of Grenada, Carriacou, and Petite Martinique, and in long-standing traditions of fishing and small-scale farming passed down through generations.
+- **Local pride:** Grenadians take pride in oil down, the national dish, a stew of breadfruit, salted meat or chicken and spices cooked in coconut milk.
 
 ## Guadeloupe
 
-- The main islands, Basse-Terre and Grande-Terre, are separated by a narrow sea channel and together look like a butterfly from above.
+- The main islands, Basse-Terre and Grande-Terre, are separated by narrow waterways including the Rivière Salée and together form a butterfly shape as viewed from above.
 - Guadeloupe is part of the euro area and the European Union as an outermost region, despite lying in the Caribbean.
-- **History:** France colonised the islands in 1635, and slavery was finally abolished in 1848, after Napoleon had reinstated it in 1802.
+- **History:** The Compagnie des Îles de l'Amérique settled Guadeloupe in 1635, and slavery was abolished in the French Empire in 1848 after a consular decree of July 1802 had ordered its reestablishment.
 - **Culture:** Gwoka, a drumming and singing tradition born among enslaved Africans, was inscribed by UNESCO on its Intangible Cultural Heritage list in 2014.
 - **Politics:** Guadeloupe is an overseas department and region of France, with representation in the French parliament and subject to French law.
-- **Local pride:** Guadeloupeans take pride in the gwoka tradition and their Creole food and language, which carry their island identity.
+- **Local pride:** Guadeloupeans take pride in their Carnival, whose Sunday parades lead up to Ash Wednesday, when the mascot king Vaval is burned.
 
 ## Guam
 
 - Guam is the largest island in Micronesia and the southernmost of the Mariana Islands.
 - The Chamorro people have lived on Guam for thousands of years, and Chamorro remains an official language alongside English.
-- **History:** Guam was ceded by Spain to the United States in 1898, was occupied by Japan from December 1941, and was retaken by US forces in July 1944.
-- **Culture:** Each village holds an annual fiesta around its patron saint, with feasts that typically include red rice and kelaguen.
+- **History:** Guam was ceded by Spain to the United States in 1898, and Japan captured it on 8 December 1941, hours after the attack on Pearl Harbor.
+- **Culture:** Chamorro fiestas (gupot) are occasions for feasting, and red rice made with achiote and kelaguen, meat cured in citrus acid, are staples of Chamorro cuisine.
 - **Politics:** Guam is an unincorporated, organised territory of the United States under the 1950 Organic Act; residents are US citizens, elect a governor and a legislature, and a non-voting delegate to the US House.
-- **Local pride:** Islanders are proud of the Chamorro value of inafa'maolek, living in harmony and mutual support, and of the generosity of village fiesta culture.
+- **Local pride:** Islanders take pride in Liberation Day on 21 July, a territorial holiday commemorating the 1944 recapture of the island from Japanese forces.
 
 ## Guatemala
 
-- Guatemala has around 37 volcanoes, several of them still active, giving it one of the densest volcanic landscapes in Central America.
-- The ancient Maya civilization that flourished in what is now Guatemala is credited as an origin point of chocolate, cultivating cacao for ceremonial and everyday drinks long before it spread globally.
-- **History:** Guatemala endured a 36-year civil war from 1960 to 1996 between the government and leftist guerrilla groups, one of the longest and deadliest internal conflicts in Latin American history.
-- **Culture:** Guatemala's large indigenous Maya population speaks more than 20 distinct Mayan languages, and huipil textile patterns worn by women often identify the specific town they come from.
-- **Politics:** Guatemala is a presidential republic with a unicameral Congress, and its constitution limits the president to a single four-year term with no possibility of re-election.
-- **Local pride:** Guatemalans commonly take pride in the country's highland coffee-growing tradition, where distinct microclimates across different regions produce beans considered among the world's finest specialty coffees.
+- Guatemala has 37 volcanoes, four of them active: Pacaya, Santiaguito, Fuego and Tacaná.
+- Guatemala's currency, the quetzal, is named after the resplendent quetzal, the country's national bird.
+- **History:** Guatemala endured a 36-year civil war from 1960 to 1996, in which the REMHI report estimated that some 200,000 people died.
+- **Culture:** Twenty-one Mayan languages are spoken in Guatemala, especially in rural areas.
+- **Politics:** Guatemala is a unitary presidential republic whose legislature, the Congress of the Republic, has 160 members elected for four-year terms.
+- **Local pride:** Guatemalans take pride in their coffee-growing tradition; coffee became an important crop for the country during the Liberal era.
 
 ## Guernsey
 
-- The island is known for the Guernsey cow, a dairy breed that produces golden, high-butterfat milk.
+- The island is known for the Guernsey cow, a dairy breed whose milk has a golden-yellow tinge and a high milk-fat content of about 5 percent.
 - Guernsey is not part of the United Kingdom or the European Union and has no value added tax.
 - **History:** German forces occupied the Channel Islands from 1940 and Guernsey was liberated on 9 May 1945, a date still celebrated as Liberation Day.
-- **Culture:** Guernésiais, a Norman French language, is spoken by only a small number of people today, and Guernsey gâche, a fruit loaf, is a traditional local food.
-- **Politics:** Guernsey is a self-governing Crown Dependency within the Bailiwick of Guernsey, led by the elected States of Deliberation, with the UK responsible for its defence and international representation.
-- **Local pride:** Islanders are proud of their independent, self-reliant community and the way they mark Liberation Day each year.
+- **Culture:** Guernésiais, the island's traditional language, was spoken fluently by about 2 percent of the population at the 2001 census, and gâche, a bread with raisins, sultanas and mixed peel, is a traditional local food.
+- **Politics:** Guernsey is a self-governing Crown Dependency within the Bailiwick of Guernsey, led by the elected States of Deliberation, with defence and most foreign relations handled by the British Government.
+- **Local pride:** Islanders take pride in the Muratti Vase, the annual inter-island football competition against Jersey and Alderney that has run since 1905.
 
 ## Guinea
 
 - Guinea holds among the largest bauxite (aluminum ore) reserves of any country, estimated at roughly a quarter of the world's known supply.
-- Guinea's Fouta Djallon highlands are the source of several of West Africa's major rivers, including the Niger, Senegal, and Gambia, earning the region a reputation as a key regional water source.
-- **History:** Guinea's 1958 independence referendum, led by Sékou Touré, resulted in France rapidly pulling out personnel and infrastructure, leaving the new nation with severe administrative gaps.
-- **Culture:** The djembe drum, closely associated with the historic Mande empire and Malinke people of the region, remains a cornerstone of West African percussion music with roots in Guinea.
-- **Politics:** Guinea has experienced repeated military takeovers, most recently in September 2021 when Colonel Mamady Doumbouya seized power; a transitional government has since guided the country toward planned elections.
-- **Local pride:** Guineans commonly take pride in strong traditions of communal hospitality and extended-family support that remain central to daily life across the country's many ethnic communities.
+- Guinea's Fouta Djallon highlands are the headwaters of four major rivers, including the Gambia and Senegal, and feed the upper Niger through its tributary the Tinkisso.
+- **History:** In a 28 September 1958 referendum Guinea voted overwhelmingly for independence from France, which was proclaimed on 2 October 1958 after the French withdrew.
+- **Culture:** The djembe drum is linked to the Mandinka Numu blacksmith caste and to the Mali Empire, which included parts of modern Guinea and Mali.
+- **Politics:** Guinea's military seized power on 5 September 2021 under Mamady Doumbouya; a new constitution was approved in a 21 September 2025 referendum, and he won the 28 December 2025 presidential election with 86.72 percent of the vote, which the Supreme Court validated on 5 January 2026.
+- **Local pride:** Guineans take pride in Les Ballets Africains, the national dance company of Guinea, formed in 1952, which has toured Europe and the United States and played Broadway promoting traditional African dance.
 
 ## Guinea-Bissau
 
-- Cashew nuts account for the vast majority of Guinea-Bissau's export earnings, making the country heavily dependent on a single agricultural commodity.
+- Cashew nuts are among Guinea-Bissau's major exports, alongside fish and groundnuts.
 - The Bijagós Archipelago off Guinea-Bissau's coast, made up of roughly 88 islands and islets, is designated a UNESCO Biosphere Reserve.
-- **History:** Guinea-Bissau fought an armed independence struggle against Portugal led by Amílcar Cabral, beginning in 1963 and ending with independence in 1974.
-- **Culture:** The Bijagós people practice distinctive matrilineal customs and elaborate initiation ceremonies that set them apart from many neighboring West African cultures.
-- **Politics:** Guinea-Bissau has experienced numerous coups and coup attempts since independence, contributing to persistent political instability within its semi-presidential system of a President and Prime Minister.
-- **Local pride:** Residents of Guinea-Bissau commonly take pride in gumbe, a distinctive local music genre blending regional rhythms with outside influences, which has become an emblem of national identity since independence.
+- **History:** Guinea-Bissau fought an armed independence struggle against Portugal led by Amilcar Cabral's PAIGC from 1963; independence was unilaterally declared on 24 September 1973 and formally recognised on 10 September 1974.
+- **Culture:** The Bijagós people of the Bissagos Islands link decorated wood masks, shields and other artifacts to fanado coming-of-age ceremonies.
+- **Politics:** Guinea-Bissau has had coups or coup attempts in 1980, 1998-99, 2003, 2012, 2022, 2023 and 2025; since 27 November 2025 General Horta Inta-A Na Man has served as transitional president, and the country's ECOWAS and African Union memberships have been suspended.
+- **Local pride:** Residents commonly take pride in gumbe, a polyrhythmic genre that fuses about ten of the country's folk music traditions and is described as its primary musical export.
 
 ## Guyana
 
-- Guyana is the only country in South America where English is the official language, a legacy of British colonial rule.
-- Guyana has become one of the fastest-growing economies in the world following major offshore oil discoveries beginning in 2015.
+- Guyana is the only country in mainland South America where English is the official language, a legacy of British colonial rule.
+- Guyana's economy was transformed by an offshore oil discovery in 2015, and it grew 49 percent in 2020, making it by some accounts the world's fastest-growing economy.
 - **History:** Guyana gained independence from Britain in 1966; in 1978 more than 900 members of the Peoples Temple religious group died in a mass murder-suicide at Jonestown in the Guyanese interior.
-- **Culture:** Guyanese cuisine and festivities blend Indian, African, Amerindian, and Chinese influences, seen in dishes like pepperpot and cook-up rice and in shared celebrations of Diwali and Phagwah.
-- **Politics:** Guyana has a long-standing territorial dispute with Venezuela over the Essequibo region, which Guyana administers and which makes up roughly two-thirds of its territory, with the matter currently before the International Court of Justice.
-- **Local pride:** Guyanese commonly take pride in the vast, largely untouched rainforest covering most of the country's interior, and in long-standing traditions of small-scale gold and diamond mining passed down through generations.
+- **Culture:** Guyanese cuisine includes pepperpot, a slow-cooked meat stew flavoured with cassareep, and cook-up rice, and Diwali and Phagwah (Holi) are marked as holidays.
+- **Politics:** Venezuela claims the Essequibo region, about 159,500 square kilometres, which Guyana administers; the International Court of Justice ruled that it has jurisdiction and in December 2023 ordered Venezuela not to disrupt Guyana's control, and no final judgment appeared in the sources checked as of late 2026.
+- **Local pride:** Guyanese take pride in Mashramani, the Republic Day festival held around 23 February with costume bands, float parades and steel-pan music, whose name is an Amerindian word for celebration after hard work.
 
 ## Haiti
 
 - Haiti is home to the Citadelle Laferrière, a mountaintop fortress built in the early 1800s that is often cited as the largest fortress in the Americas.
-- France demanded that Haiti pay a massive indemnity to compensate former slaveholders for its independence, a debt that took over a century to repay and severely constrained the country's early development.
+- In 1825 France forced Haiti to agree to pay an indemnity of 150 million gold francs to former colonists in exchange for recognizing its independence.
 - **History:** The Haitian Revolution, spanning 1791 to 1804, ended French colonial rule and slavery on the island.
-- **Culture:** Haitian Vodou, a religion blending West African spiritual traditions with Catholic elements, is officially recognized in Haiti alongside Catholicism and remains widely practiced.
-- **Politics:** Haiti has faced prolonged political instability, including the absence of a functioning elected parliament since 2020, with governance in recent years carried out by a transitional presidential council amid a severe security crisis.
-- **Local pride:** Haitians commonly take pride in their Kreyòl language and in a vibrant tradition of naïve and Vodou-influenced visual art that has earned international recognition as a distinct Haitian art form.
+- **Culture:** Haitian Vodou, a religion blending West African spiritual traditions with Catholic elements, is sometimes described as Haiti's national religion, and many Haitians practise it alongside Catholicism.
+- **Politics:** The Transitional Presidential Council dissolved when its mandate expired on 7 February 2026, leaving the presidency vacant and Prime Minister Alix Didier Fils-Aimé as the only holder of executive power; the National Assembly has no elected members remaining, and the country faces a severe security crisis (as of early 2026).
+- **Local pride:** Haitians take pride in Kreyòl, an official language spoken across the country, and in a naïve painting tradition tied to the Centre d'Art (founded 1944) that often draws on Vodou imagery.
 
 ## Honduras
 
 - The ancient Maya city of Copán in Honduras contains the longest known Maya hieroglyphic inscription, carved into a monumental stone stairway.
 - The term 'banana republic' originated in reference to early 20th-century Honduras, describing the outsized political and economic influence held there by American fruit companies.
-- **History:** Honduras gained independence from Spain in 1821 as part of the Federal Republic of Central America, which fractured into separate nations by the 1830s-40s.
-- **Culture:** Punta, a traditional music and dance style of the Afro-indigenous Garifuna people on Honduras's Caribbean coast, is recognized by UNESCO as part of the region's intangible cultural heritage.
-- **Politics:** Honduras is a presidential republic with a unicameral National Congress, and a disputed 2009 removal of a sitting president by the military stands as one of the more disruptive events in its recent constitutional history.
-- **Local pride:** Hondurans commonly take pride in a strong sense of community and hardworking resilience, often expressed through the shared 'Catracho' national identity.
+- **History:** Honduras became independent from Spain in 1821, joined the United Provinces (Federal Republic) of Central America in 1823 after a brief spell in the Mexican Empire, and declared itself a separate state in 1838.
+- **Culture:** The Garifuna people of Honduras's Caribbean coast, whose language, dance and music were proclaimed a UNESCO Masterpiece of the Oral and Intangible Heritage of Humanity in 2001, are the keepers of punta, a dance-music style central to Garifuna celebrations.
+- **Politics:** Honduras is a presidential republic with a unicameral National Congress; on 28 June 2009 the military removed President Manuel Zelaya, and a later Truth and Reconciliation Commission concluded the removal was illegal and amounted to a coup.
+- **Local pride:** Hondurans take pride in their national football team, which has qualified for the men's World Cup in 1982, 2010 and 2014.
 
 ## Hong Kong
 
 - Hong Kong has more skyscrapers than any other city in the world.
-- Despite its density, roughly 40 percent of its land area is protected as country parks and similar reserves.
+- Despite its density, about 40 percent of its remaining undeveloped land is country parks and nature reserves.
 - **History:** Hong Kong Island was ceded to Britain in 1842 after the First Opium War, and sovereignty over the whole territory passed to China on 1 July 1997.
 - **Culture:** Yum cha, the Cantonese tradition of gathering for tea and dim sum, is a central social ritual, and the Dragon Boat Festival is widely observed.
 - **Politics:** Hong Kong is a Special Administrative Region of China under the Basic Law, with its own chief executive, legislature, currency and common-law legal system, while Beijing is responsible for defence and foreign affairs.
-- **Local pride:** Hong Kong residents are proud of their food culture, from dim sum to street snacks, and of a reputation for resilience, efficiency and hard work.
+- **Local pride:** Hong Kong residents take pride in the Hong Kong Rugby Sevens, an annual international tournament held in the city since 1976.
 
 ## Hungary
 
 - Hungarian is one of the few languages spoken in Europe that is not Indo-European, belonging instead to the Finno-Ugric family, distantly related to Finnish and Estonian.
 - Hungarians invented the ballpoint pen, the Rubik's Cube, and noiseless matches, among other everyday innovations.
-- **History:** In 1956, a nationwide uprising against Soviet-backed rule broke out in Hungary and was crushed by Soviet tanks within weeks, becoming one of the defining events of the early Cold War.
-- **Culture:** Hungarian cuisine is built around paprika, with goulash serving as a national culinary symbol, and the country also maintains a centuries-old public thermal bathhouse tradition dating to Ottoman rule.
+- **History:** In 1956, a countrywide uprising against Soviet-dominated rule began in Budapest on 23 October and was crushed by Soviet tanks and troops in early November.
+- **Culture:** Hungarian cuisine is built around paprika, with goulash described as one of the national dishes and a symbol of the country, and public thermal baths, including those built in Buda under Ottoman rule, remain a living tradition.
 - **Politics:** Hungary is a parliamentary republic with a unicameral National Assembly; the president is a largely ceremonial head of state elected by parliament rather than by popular vote, while executive power sits with the prime minister.
-- **Local pride:** Hungarians commonly take pride in the country's disproportionate record of Olympic success, particularly in swimming and water polo, and in a strong tradition of classical and folk music.
+- **Local pride:** Hungarians take pride in their Olympic record, especially men's water polo, where Hungary has won a record nine Olympic gold medals.
 
 ## Iceland
 
@@ -941,61 +932,61 @@
 - **History:** The Althing, Iceland's parliament established around 930 AD, is widely considered one of the oldest surviving parliamentary institutions in the world.
 - **Culture:** Icelanders traditionally use patronymic rather than family surnames, based on a parent's first name, so phone directories are conventionally sorted by first name.
 - **Politics:** Iceland is a parliamentary republic in which the directly elected president holds largely ceremonial power, while real executive authority rests with a prime minister who typically leads a multi-party coalition government.
-- **Local pride:** Icelanders take pride in their unusually strong literary culture and near-universal literacy, with book publishing and reading remaining a widely shared national pastime.
+- **Local pride:** Icelanders take pride in Jólabókaflóð, the 'Christmas book flood', when books are the most popular Christmas gift, are traditionally given on Christmas Eve, and a surge of new titles is released in the months beforehand.
 
 ## India
 
 - India constitutionally recognizes 22 official languages alongside hundreds of other spoken languages, with Hindi and English used at the central government level.
-- India operates one of the largest postal networks in the world by number of post offices.
-- **History:** India gained independence from British rule in 1947, an event accompanied by the Partition that created India and Pakistan and triggered one of the largest mass migrations in recorded history.
-- **Culture:** Classical Indian dance forms such as Bharatanatyam and Kathak use codified hand gestures called mudras, each carrying specific symbolic meaning within the performance.
+- India Post operates about 165,000 post offices as of March 2025, described as the widest postal network in the world, with roughly 90 percent of them in rural areas.
+- **History:** India gained independence from British rule in 1947, an event accompanied by the Partition that created India and Pakistan and displaced an estimated 12 to 20 million people.
+- **Culture:** Classical Indian dance forms use codified hand gestures called mudras; Bharatanatyam, for example, has 28 root mudras that combine into an expressive vocabulary, and Kathak likewise uses hand gestures to convey sentiment and story.
 - **Politics:** India is a federal parliamentary republic with a bicameral parliament (the directly elected Lok Sabha and the indirectly elected Rajya Sabha) and a president who serves as ceremonial head of state, chosen by an electoral college rather than by direct popular vote.
 - **Local pride:** Many Indians take pride in their country functioning as the world's largest democracy, holding elections that involve hundreds of millions of voters across enormous linguistic and regional diversity.
 
 ## Indonesia
 
-- Indonesia is the world's largest archipelagic nation, made up of more than 17,000 islands.
+- Indonesia is the world's largest archipelagic state, with between about 13,000 and 17,000 islands depending on how they are counted.
 - Indonesia has more than 700 living languages, giving it one of the highest levels of linguistic diversity of any country on Earth.
 - **History:** Indonesia declared independence from Dutch colonial rule in 1945, though the Netherlands only formally recognized full sovereignty in 1949 after years of armed conflict and negotiation.
-- **Culture:** Gamelan ensembles, made up of tuned bronze percussion instruments, remain central to Javanese and Balinese ceremonial, theatrical, and artistic life.
+- **Culture:** Gamelan, an ensemble of mostly percussive instruments such as metallophones, gongs and drums, accompanies Javanese and Balinese ceremonies, dance and wayang puppet theatre, and was inscribed on UNESCO's Representative List of the Intangible Cultural Heritage of Humanity in 2021.
 - **Politics:** Indonesia is a presidential republic in which the president is directly elected and serves as both head of state and government, with a bicameral legislature made up of the House of Representatives and the Regional Representative Council.
-- **Local pride:** Indonesians commonly take pride in traditional crafts such as batik textile-making, recognized by UNESCO as an important part of world heritage, and in the spirit of gotong royong, a tradition of mutual community cooperation that shapes everyday social life.
+- **Local pride:** Indonesians commonly take pride in batik textile-making, recognised by UNESCO in 2009 as intangible cultural heritage, and in gotong royong, an ethos of mutual cooperation in which communities jointly build shared facilities.
 
 ## Iran
 
-- Iran is home to one of the world's oldest continuous civilizations, with the ancient Persian Empire under Cyrus the Great forming one of history's largest empires.
-- Iran holds some of the largest proven natural gas reserves in the world and is also one of the most mountainous countries globally.
+- Iran is one of the world's oldest continuous major civilizations, and the Achaemenid Empire founded by Cyrus the Great was the largest Iranian state in history.
+- Iran has the world's second-largest proven natural gas reserves after Russia (2021 U.S. EIA figures), and its terrain consists of rugged mountain rims surrounding high interior basins.
 - **History:** The 1979 Iranian Revolution overthrew the ruling monarchy and established an Islamic Republic under Ayatollah Ruhollah Khomeini.
-- **Culture:** Classical Persian poetry, especially the works of Hafez and Rumi, remains woven into daily life, including the practice of randomly opening a book of Hafez's poems to seek guidance or insight.
-- **Politics:** Iran's political system combines an elected president and parliament with a Supreme Leader who holds ultimate authority over the armed forces and judiciary, a structure of overlapping elected and clerical authority distinctive among modern states.
-- **Local pride:** Iranians commonly take pride in a longstanding tradition of hospitality (mehman-navazi) and in centuries-old craftsmanship such as Persian carpet weaving and miniature painting.
+- **Culture:** Classical Persian poetry remains woven into daily life, including the practice of randomly opening a Divan of Hafez to seek guidance, especially at Nowruz and Yalda Night.
+- **Politics:** Iran has a directly elected president and parliament, but candidates are vetted by the Guardian Council and the Supreme Leader holds ultimate authority, including control of the armed forces and the judiciary; as of March 2026 the Supreme Leader is Mojtaba Khamenei.
+- **Local pride:** Iranians take pride in Nowruz, the Persian New Year at the spring equinox, celebrated with the haft-sin table and inscribed by UNESCO in 2009.
 
 ## Iraq
 
-- Iraq encompasses much of ancient Mesopotamia, the land between the Tigris and Euphrates rivers, often called the cradle of civilization where writing was first developed.
-- Iraq holds some of the largest proven oil reserves in the world, ranking among the top handful of countries globally.
+- Iraq encompasses much of ancient Mesopotamia, the land between the Tigris and Euphrates rivers, often called the cradle of civilization and home to Sumer, regarded as the world's earliest civilization.
+- Iraq has one of the largest proven oil reserves in the world, ranked fifth by Oil and Gas Journal figures of about 115 billion barrels that date from 2001.
 - **History:** In 2003, a United States-led coalition invaded Iraq and removed Saddam Hussein's government, beginning years of insurgency, occupation, and political restructuring.
 - **Culture:** The Iraqi maqam, a traditional vocal and instrumental art form, is recognized by UNESCO as an element of intangible cultural heritage.
-- **Politics:** Iraq is a federal parliamentary republic with a ceremonial president and a prime minister who heads government, and it includes the Kurdistan Region, which maintains its own regional government with substantial autonomy.
-- **Local pride:** Iraqis often take pride in strong traditions of hospitality and close family and tribal bonds that have endured through decades of hardship.
+- **Politics:** Iraq is a federal parliamentary republic with a largely ceremonial president and a prime minister who heads the government; the Kurdistan Region has its own government and parliament, officially recognised in 2005, though the federal government has curtailed some of its authorities since 2017.
+- **Local pride:** Iraqis take pride in their national football team's victory at the 2007 AFC Asian Cup, beating Saudi Arabia 1-0 in the final.
 
 ## Ireland
 
-- Ireland was the first country in the world to legalize same-sex marriage through a nationwide popular referendum, in 2015.
-- Ireland has one of the largest diaspora populations relative to its size of any country, with people of Irish descent abroad far outnumbering the resident population.
+- On 22 May 2015 Ireland amended its constitution by referendum to allow same-sex marriage, making it the eighteenth country in the world, and eleventh in Europe, to allow same-sex couples to marry nationwide.
+- Estimates of the Irish diaspora range from about 3 million people under the Irish government's narrower definition to over 100 million people of Irish ancestry, against an island population of roughly 6.4 million in 2011.
 - **History:** The 1916 Easter Rising was an armed insurrection against British rule that helped set in motion the eventual establishment of the Irish Free State in 1922.
-- **Culture:** Traditional Irish music sessions held informally in pubs, featuring instruments like the fiddle, bodhrán, and uilleann pipes, remain a living and widely practiced tradition.
+- **Culture:** Traditional Irish music sessions held in pubs, featuring instruments like the fiddle, bodhrán, and uilleann pipes, remain a living tradition.
 - **Politics:** Ireland is a parliamentary republic with a directly elected but largely ceremonial president, while the Taoiseach (prime minister) leads the government from the Dáil, the lower house of parliament.
-- **Local pride:** Irish people commonly take pride in the country's outsized contribution to world literature relative to its small population, and in an everyday culture of conversation, wit, and storytelling.
+- **Local pride:** Irish people take pride in the games of the amateur Gaelic Athletic Association, hurling and Gaelic football, which draw the largest crowds of any sports in the Republic of Ireland.
 
 ## Isle of Man
 
 - The Isle of Man TT motorcycle races have been held on public roads on the island since 1907.
 - The Manx cat is a famous local breed noted for having little or no tail.
-- **History:** Tynwald, the island's parliament, claims an unbroken history of over a thousand years, tracing its origins to Viking-age assemblies.
-- **Culture:** Manx Gaelic, the island's Celtic language, nearly died out after the last native speaker died in 1974 but has since been revived through schooling.
+- **History:** By tradition Tynwald, the island's parliament, dates from 979 and is described as the world's oldest continuous legislature, although historical evidence points to a later origin, around the 13th century.
+- **Culture:** Manx Gaelic, the island's Celtic language, nearly died out, with the last speaker to grow up in a Manx-speaking community dying in 1974, but it has since been revived, including through the Gaelic-medium Bunscoill Ghaelgagh primary school.
 - **Politics:** The Isle of Man is a self-governing Crown Dependency, not part of the UK, with Tynwald made up of the elected House of Keys and the Legislative Council, and the UK responsible for defence and international representation.
-- **Local pride:** Manx people are proud of their long tradition of self-government and their island's motorsport culture.
+- **Local pride:** Manx people take pride in Tynwald Day, held usually on 5 July at Tynwald Hill, when new laws are promulgated in Manx and English.
 
 ## Israel
 
@@ -1004,7 +995,7 @@
 - **History:** Israel declared independence in May 1948, immediately followed by a war with neighboring Arab states.
 - **Culture:** Israeli cuisine blends Middle Eastern, Mediterranean, and Jewish diaspora culinary traditions, with dishes such as hummus and shakshuka central to daily eating life.
 - **Politics:** Israel is a parliamentary democracy with a unicameral legislature, the Knesset, elected through nationwide proportional representation, and it operates without a single written constitution, relying instead on a series of Basic Laws.
-- **Local pride:** Israelis often take pride in transforming an arid environment into productive farmland through agricultural innovations such as drip irrigation, and in a strong culture of civic and communal service.
+- **Local pride:** Israelis take pride in drip irrigation, with the Israeli firm Netafim, founded in 1965 at Kibbutz Hatzerim, introducing the world's first commercial dripper in 1966.
 
 ## Italy
 
@@ -1012,125 +1003,125 @@
 - Regional dialects across Italy remain so linguistically distinct that Neapolitan, Sicilian, and Venetian are classified by linguists as separate Romance languages rather than mere variants of standard Italian.
 - **History:** Italy was unified in 1861 into the Kingdom of Italy after a decades-long movement that ended centuries of fragmentation among city-states and foreign-ruled territories.
 - **Culture:** Italian cuisine is deeply regional, with traditions like the art of Neapolitan pizza-making receiving UNESCO-recognized intangible cultural heritage status.
-- **Politics:** Italy is a parliamentary republic with a largely ceremonial president and a bicameral parliament, and it has seen more than 60 different governments since 1946, reflecting frequent coalition turnover.
-- **Local pride:** Italians commonly take deep pride in their regional culinary traditions, often identifying strongly with the specific dishes and food customs of their home town or region.
+- **Politics:** Italy is a parliamentary republic with a president as head of state and a bicameral parliament, and it has had more than 60 governments since 1946, reflecting frequent coalition turnover.
+- **Local pride:** Italians take pride in regional protected food products such as Parmigiano Reggiano, which may only be made in a defined area of Emilia-Romagna and Lombardy under a protected designation of origin.
 
 ## Jamaica
 
-- Jamaica has produced a disproportionately large share of the world's fastest sprinters relative to its small population.
+- At the 2008 Beijing Olympics, Jamaican women took every medal awarded in the 100 m (gold plus a tied silver), a day after a Jamaican man won the men's 100 m in a world record 9.69 seconds.
 - Reggae music, which originated in Jamaica in the late 1960s, was added to UNESCO's list of intangible cultural heritage in 2018.
 - **History:** Jamaica gained independence from Britain in 1962, after centuries as a sugar-plantation colony built on enslaved labor.
 - **Culture:** Jamaican Patois, an English-based creole language, is widely spoken alongside official English and carries significant musical and literary importance, especially in reggae and dancehall lyrics.
-- **Politics:** Jamaica is a parliamentary democracy and Commonwealth realm, with the British monarch as ceremonial head of state represented locally by a Governor-General, and a bicameral parliament.
-- **Local pride:** Jamaicans take great pride in distinctive culinary traditions such as jerk seasoning and cooking, and in a broader spirit of creativity and resourcefulness that has shaped the island's outsized cultural influence.
+- **Politics:** Jamaica is a parliamentary constitutional monarchy and Commonwealth realm, with the British monarch as head of state represented locally by a Governor-General, and a bicameral Parliament of an appointed Senate and an elected House of Representatives.
+- **Local pride:** Jamaicans take pride in jerk, the island's style of seasoning meat with pimento (allspice) and scotch bonnet pepper and slow-cooking it over pimento wood.
 
 ## Japan
 
-- Japan is home to the world's oldest continuously operating company, a construction firm founded in 578 AD.
-- Japan has one of the highest life expectancies in the world and one of the largest proportions of centenarians relative to its population.
+- Nishiyama Onsen Keiunkan, a hot-spring inn in Yamanashi Prefecture founded in 705, is recognised by Guinness World Records as the world's oldest hotel; Kongo Gumi, the temple builder founded in 578 and often called the oldest company, became a subsidiary of Takamatsu Construction Group in 2006.
+- Japan's health ministry counted 107,677 people aged 100 or older in its latest annual survey, a record, about 88% of them women.
 - **History:** The Meiji Restoration of 1868 ended centuries of feudal shogunate rule and launched a rapid, deliberate modernization and industrialization of the country.
 - **Culture:** The Japanese tea ceremony (chanoyu), a highly ritualized method of preparing and serving matcha, embodies principles of harmony, respect, purity, and tranquility.
 - **Politics:** Japan is a constitutional monarchy with a symbolic, non-political emperor and a bicameral parliament called the Diet; the prime minister is selected by the Diet rather than elected directly by voters.
-- **Local pride:** Japanese people commonly take pride in shared cultural values of craftsmanship, precision, and attentiveness to detail carried through everyday work and daily life.
+- **Local pride:** Japanese people take pride in their punctual Shinkansen bullet trains, which have run since 1964 with no passenger deaths from collisions or derailments.
 
 ## Jersey
 
-- Jersey has some of the largest tidal ranges in the world, with a difference of around 12 metres between high and low tide.
-- Jersey Royal potatoes, grown on the island's coastal slopes, hold protected designation of origin status.
+- Jersey has a very large tidal variation, which exposes large expanses of sand and rock to the southeast at low tide.
+- Jersey Royal potatoes, grown on the island's south-facing côtils (steeply sloping fields), are covered by a Protected Designation of Origin.
 - **History:** German forces occupied Jersey from 1 July 1940 until liberation on 9 May 1945.
 - **Culture:** The Battle of Flowers, a parade of floral floats, has been held on the island since 1902, and Jèrriais, a Norman French language, is still taught in some schools.
 - **Politics:** Jersey is a self-governing Crown Dependency, not part of the UK, with an elected States Assembly and a Chief Minister, and the UK responsible for its defence and international representation.
-- **Local pride:** Islanders are proud of their farming heritage, especially the Jersey Royal potato harvest, and of their independent island identity.
+- **Local pride:** Islanders take pride in the Jersey cow, a breed protected since 1789 by a ban on importing foreign cattle, with a herd book opened in 1866.
 
 ## Jordan
 
-- Jordan hosts one of the largest refugee populations per capita in the world, including large Palestinian and Syrian refugee communities.
-- Jordan is one of the most water-scarce countries on Earth, relying heavily on limited groundwater and desalination and reuse technologies.
+- Jordan hosts millions of refugees, including about 2.18 million registered Palestinian refugees (2016) and Syrian refugees numbering in the hundreds of thousands to over a million, depending on the source and year.
+- Jordan is considered one of the ten most water-scarce countries in the world, relying on limited groundwater, desalination and treated wastewater reuse.
 - **History:** Jordan achieved full independence from British mandate rule in 1946, becoming the Hashemite Kingdom of Jordan.
-- **Culture:** Bedouin hospitality customs, including elaborate traditional coffee ceremonies, continue to shape Jordanian social life even in modern urban settings.
-- **Politics:** Jordan is a constitutional monarchy in which the King holds broad executive powers, appoints the prime minister, and can dissolve the bicameral National Assembly.
-- **Local pride:** Jordanians commonly take pride in shared culinary traditions such as mansaf, the national dish, and in the country's reputation for stability within a turbulent regional neighborhood.
+- **Culture:** In the Bedouin desert area of Petra and Wadi Rum in southern Jordan, zarb (quzi) is made by cooking marinated meat, bread dough and vegetables in an underground oven called a taboon.
+- **Politics:** Jordan is a semi-constitutional monarchy in which the King holds wide executive and legislative powers, may dissolve parliament, and appoints the Assembly of Senators, the upper chamber of the bicameral National Assembly.
+- **Local pride:** Jordanians take pride in mansaf, the national dish of lamb cooked in jameed (a sauce of fermented dried yogurt) and served over rice or bulgur.
 
 ## Kazakhstan
 
 - Kazakhstan is the largest landlocked country in the world by land area.
 - Kazakhstan was home to the Soviet Union's primary nuclear weapons testing site at Semipalatinsk and remains the site of the Baikonur Cosmodrome, from which Sputnik and the first human spaceflight were launched.
 - **History:** Kazakhstan declared independence from the Soviet Union in December 1991, the last of the Soviet republics to do so.
-- **Culture:** Traditional nomadic practices such as hunting with trained golden eagles are still preserved by some ethnic Kazakh communities, particularly in the country's mountainous west.
-- **Politics:** Kazakhstan is a presidential republic with a bicameral parliament made up of the Senate and the Mazhilis, and its capital was renamed from Astana to Nur-Sultan and later back to Astana, reflecting shifting political leadership.
-- **Local pride:** Kazakhs commonly take pride in the country's reputation for interethnic harmony, home to more than 100 ethnic groups who have long lived together across the vast steppe.
+- **Culture:** Hunting with trained golden eagles by berkutchi is preserved by some ethnic Kazakh communities, and Kazakhstan is among the countries on UNESCO's multinational falconry listing.
+- **Politics:** Kazakhstan is a presidential republic; a referendum on 15 March 2026 approved a new constitution (89.86% in favour on 73.12% turnout) replacing the bicameral Parliament with a unicameral Kurultai, with the constitution taking effect on 1 July 2026 and the Kurultai's first session scheduled for 1 September 2026. The capital was renamed Nur-Sultan in March 2019 and reverted to Astana in September 2022.
+- **Local pride:** Kazakhs take pride in beshbarmak, the national dish of boiled horse or mutton meat eaten with thinly cut boiled dough in broth, commonly called 'five fingers' for the way it is eaten.
 
 ## Kenya
 
-- Kenya has produced a remarkable share of the world's top long-distance runners, dominating international marathon and middle-distance competition for decades.
-- Kenya's Great Rift Valley region has yielded some of the richest early hominid fossil discoveries, making it central to the scientific understanding of human origins.
+- Kenyan men won the Olympic 3000 m steeplechase at every Games they entered from 1968 to 2016, a streak broken in 2020.
+- The near-complete 1.5-million-year-old Turkana Boy skeleton was found in 1984 on the Nariokotome River near Lake Turkana, one of the most complete early human skeletons ever discovered.
 - **History:** Kenya gained independence from Britain in 1963, following the Mau Mau uprising of the 1950s against colonial rule.
 - **Culture:** Swahili, one of Kenya's official languages, serves as a lingua franca across East Africa and blends Bantu grammatical roots with substantial Arabic vocabulary influence.
-- **Politics:** Kenya is a presidential republic with a bicameral parliament made up of the National Assembly and the Senate, and it operates a devolved system of 47 semi-autonomous counties established under the 2010 constitution.
-- **Local pride:** Kenyans commonly take pride in the philosophy of harambee, a spirit of community self-help and collective effort embedded in national life, as well as the country's leading role in wildlife conservation.
+- **Politics:** Kenya is a presidential republic with a bicameral parliament made up of the National Assembly and the Senate, and its 47 counties are units of devolved government created under the 2010 constitution.
+- **Local pride:** Kenyans take pride in harambee ('let us pull together'), the tradition of community fundraising and self-help that appears as the motto on the national coat of arms.
 
 ## Kiribati
 
 - Kiribati is the only country in the world whose territory extends into all four hemispheres — Northern, Southern, Eastern, and Western.
 - In 1995, Kiribati redrew the International Date Line around its territory so that all of its islands share the same calendar date, making parts of the country among the first places on Earth to greet each new day.
 - **History:** Kiribati gained independence from Britain in 1979, having previously been part of the Gilbert and Ellice Islands colony.
-- **Culture:** Traditional Kiribati dance features distinctive stiff-armed, sharp movements said to represent the frigatebird, performed to the accompaniment of chanting and hand-clapping.
+- **Culture:** Traditional Kiribati dance emphasises outstretched arms and sudden birdlike head movements, reflecting the frigatebird on the national flag, and is accompanied by chanting and body percussion.
 - **Politics:** Kiribati is a republic in which the president serves as both head of state and government, elected directly by voters from candidates nominated by the unicameral legislature.
-- **Local pride:** I-Kiribati people commonly take pride in their strong seafaring and fishing traditions and a communal way of life built around collective decision-making and mutual support.
+- **Local pride:** I-Kiribati take pride in their seafaring tradition, supported by the Marine Training Centre in Tarawa (founded 1967), which trains I-Kiribati seafarers for foreign shipping lines.
 
 ## Koalou
 
-- Koalou, also known as Kourou, is a small area of farmland and villages on the border between Benin and Burkina Faso that both countries claim.
+- Koalou, also known as Kourou, is a 68 km2 area on the border between Benin and Burkina Faso, near the tripoint with Togo, that both countries claim.
 - Under a 2009 agreement the two countries made the area a neutral zone, with a joint committee managing it.
-- **History:** Benin and Burkina Faso each cite different colonial-era administrative documents from the French West Africa period to support their position on where the border runs.
-- **Culture:** Residents live mainly from farming and herding, and French, the official language of both neighbouring countries, is used alongside local languages.
-- **Politics:** Since the 2009 agreement the area has been administered jointly by Benin and Burkina Faso through a joint management committee, while its final status is left to be settled between the two states, with the possibility of referring it to the International Court of Justice.
-- **Local pride:** The farming and herding communities take pride in managing their shared land peacefully and cooperatively across a disputed border.
+- **History:** A French decision of 1914 would have placed the area in Burkina Faso, while a 1938 colonial document placed it in Benin, so each state claims it under a different administrative unit.
+- **Culture:** The zone contains three villages, Koalou, Niorgou I and Niorgou II, with a 2015 population estimate of about 5,000 people.
+- **Politics:** Since 2009 the area has been a neutral zone run by a joint committee of Benin and Burkina Faso, with its final status left pending a decision by the International Court of Justice; security there has deteriorated, and as of May 2026 militants attacked two Beninese military posts in the area.
+- **Local pride:** Residents share management of their land through a joint committee, COMGEC-K, with 14 members from each country.
 
 ## Kosovo
 
-- Kosovo sits atop some of Europe's largest lignite coal reserves, which supply the great majority of its electricity generation.
+- Kosovo holds about 14.7 billion tonnes of lignite, described as the world's fifth-largest proven reserve, and lignite provides most of its electricity.
 - Its national flag, adopted upon independence, shows six stars representing the country's six main ethnic communities rather than any religious or historical symbol.
 - **History:** Kosovo declared independence from Serbia on 17 February 2008, nearly a decade after the 1998-99 war and a period of United Nations administration under Security Council Resolution 1244.
 - **Culture:** Traditional Albanian folk music in Kosovo centers on the çifteli, a long-necked two-stringed lute often accompanying epic ballads at family and community gatherings.
-- **Politics:** Kosovo is recognized by roughly 100 UN member states but not by Serbia, Russia, China, or several EU members; it functions as a parliamentary republic with a largely ceremonial President and executive power held by the Prime Minister, while NATO's KFOR mission maintains a peacekeeping presence.
-- **Local pride:** A deep-rooted culture of hospitality, where guests are treated generously regardless of a household's means.
+- **Politics:** Kosovo's independence is recognised by at least 110 UN member states by third-party counts (120 per Kosovo, 84 per Serbia, as of December 2025), but not by Serbia, Russia or China or by five EU members including Spain, Greece and Romania; it is a parliamentary republic with a president as head of state and a prime minister heading the government, and the NATO-led KFOR, under UN Security Council Resolution 1244, remains deployed.
+- **Local pride:** Kosovo's judo athletes have won three Olympic gold medals, one at Rio 2016 and two at Tokyo 2020, a source of national pride for a country that first competed as an independent team in 2016.
 
 ## Kuwait
 
-- Kuwait has no permanent rivers or natural lakes, so nearly all of its fresh water comes from desalinated seawater.
+- Kuwait has no permanent rivers and no significant lakes, so desalinated seawater is the primary source of its drinking and domestic water.
 - The Kuwaiti dinar has long been ranked as one of the highest-valued currency units in the world relative to other national currencies.
 - **History:** Iraq invaded and occupied Kuwait in August 1990, an act reversed by a US-led coalition in the Gulf War, with Kuwait liberated in February 1991.
-- **Culture:** The diwaniya, an informal evening gathering of men in a home to discuss politics, business, and community affairs, is a longstanding social institution in Kuwaiti life.
-- **Politics:** Kuwait's National Assembly, first elected in 1963, is the oldest elected parliament among the Gulf Arab monarchies, while the Emir retains significant executive authority and appoints the Prime Minister.
-- **Local pride:** Pride in generous hospitality and close-knit community gatherings that remain central to everyday life.
+- **Culture:** The diwaniya, a reception space in a Kuwaiti home where men gather to discuss politics, business and community affairs, is a longstanding institution central to social, business and political life.
+- **Politics:** Kuwait's National Assembly, first elected in 1963, has been suspended since 10 May 2024 for a four-year constitutional re-evaluation.
+- **Local pride:** Kuwait's national football team holds the record for most Gulf Cup of Nations titles, with 10 wins between 1970 and 2010.
 
 ## Kyrgyzstan
 
-- The Arslanbob region of Kyrgyzstan contains one of the largest naturally occurring walnut forests on Earth.
+- The walnut forest around Arslanbob in Kyrgyzstan covers about 11,000 hectares and is described in a guidebook as the largest walnut grove on Earth.
 - Kyrgyzstan's national epic, the 'Manas,' runs to roughly half a million lines and is one of the longest oral epic poems ever recorded.
-- **History:** Kyrgyzstan underwent two popular uprisings that toppled sitting presidents, the 2005 Tulip Revolution and a further revolt in 2010.
-- **Culture:** Kok-boru, a fast-paced equestrian sport in which riders compete to place a goat carcass in a scoring circle, remains a widely followed national pastime.
-- **Politics:** Kyrgyzstan adopted a more parliamentary system of governance after 2010, making it an outlier among Central Asian republics, though constitutional changes in 2021 restored substantial powers to the presidency.
-- **Local pride:** Pride in nomadic heritage, expressed through the craftsmanship of felt yurts and shyrdak rugs and a tradition of hospitality toward guests, passed down through generations.
+- **History:** Kyrgyzstan has seen three popular uprisings that toppled sitting presidents: the 2005 Tulip Revolution, a revolt in 2010 and protests in October 2020.
+- **Culture:** Kok-boru, a team sport on horseback in which riders try to place a carcass in a goal, has had official Kyrgyz rules since 1949 and has been played in stadiums since 1958.
+- **Politics:** A constitution approved in a June 2010 referendum increased the powers of parliament and reduced those of the president, but a constitution approved in April 2021 significantly strengthened the presidency again.
+- **Local pride:** Pride in the felt-making craft of ala-kiyiz and shyrdak carpets, inscribed by UNESCO in 2012 on its list of intangible heritage needing urgent safeguarding.
 
 ## Laos
 
 - Laos is, per capita, the most heavily bombed country in history, a legacy of covert US bombing campaigns during the Vietnam War era.
 - Laos is the only landlocked country in Southeast Asia, bordered entirely by other nations with no coastline of its own.
 - **History:** Laos gained independence from France in 1953 and became a one-party communist state in 1975 when the Pathet Lao took power.
-- **Culture:** Sticky rice (khao niew), traditionally eaten by hand from a woven basket, is the everyday staple that anchors Lao cuisine and communal meals.
-- **Politics:** Laos is governed as a one-party socialist republic under the Lao People's Revolutionary Party, with no legally recognized opposition parties.
-- **Local pride:** Pride in a slower-paced, community- and family-centered way of life rooted in Theravada Buddhist practice, including daily alms-giving to monks.
+- **Culture:** Sticky rice (khao niao), traditionally eaten by hand from a bamboo basket shared at the table, is the staple of Lao cuisine.
+- **Politics:** Laos is a one-party communist state in which the Lao People's Revolutionary Party holds a legal monopoly on state power.
+- **Local pride:** Pride in khaen music, the bamboo mouth-organ tradition of the Lao people that UNESCO inscribed on its Representative List of Intangible Cultural Heritage in 2017.
 
 ## Latvia
 
-- Roughly half of Latvia's land area is covered by forest, one of the highest forest-cover ratios in Europe.
-- Riga holds one of the world's largest and best-preserved collections of Art Nouveau architecture, numbering in the hundreds of buildings.
+- About 54 percent of Latvia's territory is forest, roughly 34,964 km2 of 64,559 km2.
+- Art Nouveau makes up roughly one third of the buildings in the centre of Riga, and a historian cites this as the highest concentration of such buildings anywhere in the world.
 - **History:** On 23 August 1989, roughly two million people joined hands in the 'Baltic Way,' a continuous human chain stretching across Estonia, Latvia, and Lithuania to protest Soviet occupation.
-- **Culture:** Latvia's Song and Dance Festival, held every few years and recognized by UNESCO, brings together tens of thousands of amateur singers and dancers in a tradition dating to 1873.
+- **Culture:** Latvia's Song and Dance Festival, normally held every five years and inscribed by UNESCO in 2008 together with Estonia and Lithuania's celebrations, draws about 40,000 amateur performers and dates to 1873.
 - **Politics:** Latvia is a parliamentary republic in which the President is elected by the Saeima (parliament) rather than directly by voters.
-- **Local pride:** Pride in a close connection to nature, reflected in traditions of foraging for mushrooms and berries and gathering at countryside summer cottages.
+- **Local pride:** Pride in Jāņi, the midsummer festival of 23-24 June, a public holiday celebrated with oak-leaf wreaths, bonfires and caraway cheese at countryside homes.
 
 ## Lebanon
 
@@ -1139,970 +1130,970 @@
 - **History:** Lebanon endured a civil war from 1975 to 1990 that drew in regional and international powers and reshaped its sectarian political balance.
 - **Culture:** Lebanese mezze, a spread of small shared dishes such as hummus, tabbouleh, and kibbeh, is central to Lebanese dining and hospitality.
 - **Politics:** Under the unwritten 1943 National Pact and later agreements, Lebanon's presidency is reserved for a Maronite Christian, the premiership for a Sunni Muslim, and the parliamentary speakership for a Shia Muslim.
-- **Local pride:** A deep sense of resilience and communal solidarity, with families and neighbors pulling together through repeated economic and political hardship.
+- **Local pride:** Pride in Bekaa Valley winemaking, a tradition with roots in Phoenician times that Lebanese vineyards have kept alive through decades of conflict.
 
 ## Lesotho
 
 - Lesotho is the only country in the world whose entire territory lies above 1,000 meters in elevation.
 - Lesotho is one of only three countries entirely surrounded by a single other country, in this case South Africa.
-- **History:** The Basotho nation was forged in the 1820s under King Moshoeshoe I, who united refugee groups on defensible mountain strongholds against regional conflict, before Lesotho gained independence from Britain in 1966.
-- **Culture:** The Basotho blanket, a thick patterned woolen wrap, is worn daily across all social occasions and has become a recognized symbol of national identity.
+- **History:** Moshoeshoe I settled at Butha-Buthe mountain with his followers in 1820 and became king in 1822, later making the Thaba Bosiu plateau an impassable stronghold; Lesotho (as Basutoland) gained independence from Britain on 4 October 1966.
+- **Culture:** The national dress revolves around the Basotho blanket, which is used as everyday wear and, in other forms, to mark rites of passage.
 - **Politics:** Lesotho is a parliamentary constitutional monarchy in which the King serves as ceremonial head of state while executive authority rests with the Prime Minister.
-- **Local pride:** Pride in Basotho horsemanship and the sure-footed Basotho pony, prized for navigating the country's mountainous terrain.
+- **Local pride:** Pride in the Morija Arts & Cultural Festival, held annually in Morija since 1999 with choirs, jazz, traditional music and Famo.
 
 ## Liberia
 
-- Liberia was founded in the early 19th century by freed African American and Caribbean settlers and declared independence in 1847, becoming Africa's first modern republic.
-- Liberia's flag, with its red and white stripes and single white star on a blue field, was deliberately modeled on the flag of the United States.
-- **History:** Liberia suffered two devastating civil wars between 1989 and 2003 that killed hundreds of thousands and displaced much of the population.
-- **Culture:** Among indigenous groups, initiation into the Poro (for men) and Sande (for women) societies remains a significant traditional rite of passage marking the transition to adulthood.
+- Liberia was founded in 1822 as a settlement for freed African Americans by the American Colonization Society and declared independence on 26 July 1847, making it one of Africa's oldest republics.
+- Liberia's flag, with eleven red and white stripes and a single white star on a blue canton, was deliberately modeled on the flag of the United States.
+- **History:** Liberia's two civil wars, the first from 1989 and the second ending in 2003, killed an estimated 250,000 people, about 8 percent of the population.
+- **Culture:** Many Liberians take part in Poro (for men) and Sande (for women), indigenous secret societies; Sande initiates girls into adulthood and Poro is its male counterpart.
 - **Politics:** Liberia's government is modeled on that of the United States, with a bicameral legislature and a President serving as both head of state and head of government.
-- **Local pride:** A strong tradition of community solidarity and resilience, reflected in the country's recovery and rebuilding since the end of civil war.
+- **Local pride:** Pride in Liberian cooking, in which rice is the staple served with heavily spiced stews called 'soups' such as palm butter, alongside a baking tradition imported from the United States that is unique in West Africa.
 
 ## Libya
 
 - Libya holds Africa's largest proven crude oil reserves.
 - The North African desert city of Tobruk was the site of prolonged, strategically pivotal sieges and battles during World War II's North African campaign.
-- **History:** A 2011 popular uprising and NATO-backed intervention ended Muammar Gaddafi's 42-year rule, plunging the country into prolonged conflict and fragmentation.
-- **Culture:** Bazin, a firm dough made from barley or wheat flour served with sauce and meat, is a traditional Libyan dish central to communal meals.
-- **Politics:** Since 2011, Libya has been politically divided between rival administrations, including a Tripoli-based Government of National Unity and competing eastern-based authorities, with UN-facilitated processes seeking reunification.
-- **Local pride:** Pride in Bedouin desert heritage and traditions of hospitality toward guests and travelers.
+- **History:** The 2011 civil war, in which NATO intervened from 19 March 2011, ended Muammar Gaddafi's 42-year rule and was followed by prolonged conflict and political fragmentation.
+- **Culture:** Bazin, a firm barley-flour dough shaped into a mound and served with a sauce of lamb, onions and spices, is one of Libya's most recognizable traditional dishes.
+- **Politics:** As of the latest sources available (2026), Libya remains divided between the Tripoli-based Government of National Unity (formed March 2021) and an eastern-based House of Representatives and Government of National Stability, with the Haftar-led forces controlling much of the east.
+- **Local pride:** Pride in the national team's win at the 2014 African Nations Championship, its first title in that tournament, beating Ghana on penalties in the final.
 
 ## Liechtenstein
 
 - Liechtenstein is one of only two 'doubly landlocked' countries in the world, meaning it is surrounded entirely by other landlocked countries (Switzerland and Austria).
-- Liechtenstein has more registered companies than citizens, a result of business-friendly tax policies attracting international holding firms.
+- Liechtenstein is one of the few countries with more registered companies than citizens, and levies a 12.5 percent corporate profit tax.
 - **History:** The Principality of Liechtenstein was created in 1719 when the Holy Roman Emperor united the lordships of Vaduz and Schellenberg into a single imperial territory.
-- **Culture:** Liechtenstein has a long tradition of producing distinctive postage stamps, and philately remains a notable point of national cultural identity and government revenue.
-- **Politics:** Liechtenstein's reigning Prince retains unusually strong reserved powers for a European constitutional monarchy, including the ability to veto legislation and dissolve parliament.
-- **Local pride:** Pride in a tightly knit society where people tend to know their neighbors personally, and where local folk customs and traditions remain strong across generations.
+- **Culture:** Liechtenstein asserted its postal independence from Austria with its own stamps inscribed Fürstentum Liechtenstein, and the country has a dedicated stamp museum.
+- **Politics:** After a 2003 referendum approved by about two-thirds of voters, Liechtenstein's Prince can veto legislation, dissolve parliament and dismiss the government.
+- **Local pride:** Pride in Staatsfeiertag, the national day on 15 August, marked by speeches by the Prince and the Landtag president outside Vaduz Castle and a folk festival in Vaduz.
 
 ## Lithuania
 
-- Lithuania was the last pagan realm in Europe to formally convert to Christianity, only doing so in 1387.
-- Lithuania is one of the world's principal sources of Baltic amber, fossilized pine resin that washes up along its Baltic Sea coastline and has been used in jewelry and trade for thousands of years.
-- **History:** On 11 March 1990, Lithuania's Supreme Council declared the restoration of independence, a move the Soviet Union initially refused to recognize before it was finalized after the 1991 coup attempt.
-- **Culture:** Basketball holds a near-religious status in Lithuanian culture, with the national team's international successes treated as major sources of communal celebration.
-- **Politics:** Lithuania is a semi-presidential republic, with a directly elected President sharing executive authority with a Prime Minister accountable to the Seimas (parliament).
-- **Local pride:** Pride in preserving one of the oldest living Indo-European languages, alongside folk traditions such as multipart harmonic singing and handwoven textiles passed down through generations.
+- Lithuania was the last state in Europe to be Christianized: baptisms began in 1387 under Jogaila, and Samogitia converted in 1413.
+- Lithuania's Baltic coast was where the ancient Amber Road began, the trade route along which Baltic amber reached the Roman Empire.
+- **History:** On 11 March 1990, Lithuania's Supreme Council declared the restoration of independence, which the Soviet Union rejected as illegal; the Soviet Union recognized it on 6 September 1991, after the failed August coup.
+- **Culture:** Basketball, Lithuania's most popular sport, is nicknamed the country's 'second religion', and the men's team won EuroBasket in 1937, 1939 and 2003.
+- **Politics:** Lithuania is a unitary semi-presidential republic.
+- **Local pride:** Pride in sutartinės, the multipart folk singing tradition from Aukštaitija inscribed by UNESCO in 2010, and in a language some linguists consider the most conservative living Indo-European language.
 
 ## Luxembourg
 
-- Luxembourg consistently ranks among the countries with the highest GDP per capita in the world.
-- Luxembourg is officially trilingual, with Luxembourgish, French, and German all used in daily life, education, and government administration.
-- **History:** The 1839 Treaty of London established Luxembourg's borders and neutrality by separating it from Belgium, a neutrality later overturned by German invasions in both World Wars.
-- **Culture:** The Schueberfouer, an annual funfair held in Luxembourg City, traces its origins back to a market charter granted in 1340.
+- The Court of Justice of the European Union is based in Luxembourg City, in the Kirchberg district, making the small country a home of EU law.
+- Luxembourgish, French and German are all recognized as administrative languages in Luxembourg, with Luxembourgish the national language under a 1984 law and French the language of legislation.
+- **History:** The 1839 Treaty of London established Luxembourg's independence after the partition that gave its western part to Belgium, and the 1867 Treaty of London reaffirmed its independence and neutrality, which Germany overran in 1914 and 1940.
+- **Culture:** The Schueberfouer, an annual funfair in Luxembourg City, was founded by John the Blind on 20 October 1340 as a market.
 - **Politics:** Luxembourg is the world's only remaining sovereign Grand Duchy, a constitutional monarchy headed by a Grand Duke with an elected Chamber of Deputies holding legislative power.
-- **Local pride:** Pride in the country's deep engagement with its European neighbors and a tradition of welcoming the large cross-border and international workforce that lives and works alongside longtime residents.
+- **Local pride:** Residents take pride in Luxembourgish, the national language since 1984, and in public transport made free nationwide in 2020, a first for any country.
 
 ## Macau
 
-- Macau has been a hub of casino gaming, and its gaming revenue overtook that of the Las Vegas Strip in 2006.
-- Macau is one of the most densely populated places on Earth, with hundreds of thousands of people packed into roughly 30 square kilometres.
-- **History:** Portuguese traders were permitted to settle in Macau around 1557, and Portugal administered it until it was transferred to China on 20 December 1999.
-- **Culture:** Macanese cuisine blends Portuguese and Chinese cooking, and the Macanese egg tart, a local take on the Portuguese pastel de nata, is a well-known example.
+- Macau has been a hub of casino gaming, and its gaming revenue overtook that of the Las Vegas Strip in 2007.
+- Macau is one of the most densely populated places on Earth, with about 712,651 people (2024 estimate) in roughly 33 square kilometres.
+- **History:** Portugal obtained a permanent lease for a trading post at Macau in 1557 and administered it until it was transferred to China on 20 December 1999.
+- **Culture:** Macanese cuisine is an early fusion cuisine dating to the 16th century, mainly Cantonese-influenced with Portuguese and other influences, and egg tarts are among its most common delicacies.
 - **Politics:** Macau is a Special Administrative Region of China under the 'one country, two systems' principle, with its own Basic Law, chief executive, Legislative Assembly and separate legal and currency systems; the arrangement is set to run for 50 years from 1999.
-- **Local pride:** Macau residents are proud of their unique blend of Chinese and Portuguese influences in food, language and everyday life.
+- **Local pride:** Macau residents take pride in the Macau Grand Prix, a street-circuit motor race held since 1954.
 
 ## Madagascar
 
-- Isolated from mainland Africa for roughly 88 million years, Madagascar evolved a level of endemism so high that over 90 percent of its wildlife is found nowhere else on Earth.
-- The Malagasy people and language trace much of their ancestry and linguistic roots to Southeast Asian (Austronesian) seafarers rather than mainland Africa.
-- **History:** Madagascar became a French colony in 1897 following military conquest of the Merina Kingdom and regained independence in 1960.
+- Madagascar split from Africa around 180 million years ago, and over 90 percent of its wildlife is endemic, found nowhere else on Earth.
+- The Malagasy language belongs to the Austronesian family and is most closely related to Ma'anyan, spoken in Borneo, reflecting early Austronesian settlers who arrived by outrigger canoe.
+- **History:** France annexed Madagascar in 1896 after taking Antananarivo in 1895, declared it a colony in 1897, and the island became independent on 26 June 1960.
 - **Culture:** Famadihana, or the 'turning of the bones,' is a Malagasy reburial ritual in which families exhume and rewrap ancestors' remains as an act of remembrance and celebration.
-- **Politics:** Madagascar is a semi-presidential republic that has experienced several unconstitutional transfers of power, including a prolonged political crisis in 2009.
+- **Politics:** Madagascar is a semi-presidential republic where the military took power on 12-14 October 2025 after weeks of protests, and Colonel Michael Randrianirina was inaugurated as president on 17 October 2025 (as of late October 2025 reports); an earlier coup occurred in 2009.
 - **Local pride:** Pride in fihavanana, a deeply held value of kinship and mutual solidarity that shapes community life and social obligations beyond immediate family.
 
 ## Madeira
 
 - Madeira is a Portuguese archipelago in the Atlantic that lies closer to the coast of Morocco than to mainland Portugal.
-- Its wine is fortified and traditionally heated and aged, a process that gives Madeira wine its famous durability and lets opened bottles keep for a very long time.
-- **History:** Portuguese navigators reached Madeira around 1419, and settlement began soon after, with sugar cane becoming the main early export.
-- **Culture:** Espetada, beef skewered on bay laurel sticks and grilled over open fire, is a staple of Madeiran festivals, and the island's New Year's Eve fireworks are among the largest in the world.
+- Madeira wine is fortified with neutral grape spirit, and a vintage Madeira can last for decades once opened.
+- **History:** Portuguese navigators claimed Madeira in 1419 and settlers arrived around 1420 to 1425, with sugar cane becoming a major export and Madeira the main European sugar supplier by 1490.
+- **Culture:** The best Madeira wines are aged in barrel using only the island's natural warmth (canteiro), sometimes for decades, while younger wines are artificially heated (estufagem) to speed ageing.
 - **Politics:** Madeira is an autonomous region of Portugal with its own Legislative Assembly and Regional Government, a status established after the 1976 Portuguese constitution.
-- **Local pride:** Madeirans are proud of their centuries-old tradition of farming terraced hillsides and making fortified wine.
+- **Local pride:** Madeirans take pride in espetada em pau de louro, beef cubes rubbed with garlic, salt and bay leaf and grilled on bay laurel skewers, the island's signature dish.
 
 ## Malawi
 
 - Lake Malawi is home to more freshwater fish species, especially cichlids, than any other lake on Earth.
-- Malawi is widely nicknamed 'The Warm Heart of Africa,' a reputation tied to the notable friendliness travelers and neighbors report from its people.
+- Malawi moved its capital from Zomba to the more central Lilongwe, a move decided in 1965 and completed in 1975, and English is its only official language.
 - **History:** Malawi, formerly the British protectorate of Nyasaland, became independent in 1964 under Hastings Banda, who then ruled as an autocratic one-party leader until multiparty elections in 1994.
 - **Culture:** Gule Wamkulu, a masked ritual dance performed by the Chewa people's secret Nyau society, is recognized by UNESCO as an Intangible Cultural Heritage practice.
-- **Politics:** Malawi's 2019 presidential election was annulled by the Constitutional Court over irregularities and rerun in 2020, a rare instance on the continent of courts overturning a sitting president's re-election.
-- **Local pride:** Pride in oral storytelling and musical traditions passed down through generations, which keep clan and village histories alive across the country.
+- **Politics:** In February 2020 Malawi's Constitutional Court annulled the result of the 2019 presidential election; the Supreme Court upheld the ruling and a new election was held in July 2020, won by Lazarus Chakwera.
+- **Local pride:** Pride in nsima, the thick maize-flour porridge that is a staple food of Malawi, traditionally eaten with relishes such as dried fish.
 
 ## Malaysia
 
 - Malaysia is split into two geographically separate regions, Peninsular Malaysia and East Malaysia on the island of Borneo, divided by the South China Sea.
-- Malaysia is one of the world's largest producers and exporters of palm oil, a crop that plays a central role in its economy and land use.
+- Malaysia is the world's second-largest producer of palm oil after Indonesia, a crop that plays a central role in its economy and land use.
 - **History:** The Federation of Malaysia formed in 1963 by combining Malaya with Singapore, Sabah, and Sarawak, though Singapore separated to become independent in 1965.
 - **Culture:** Malaysia's multicultural calendar sees major festivals of its different communities, including Hari Raya, Chinese New Year, and Deepavali, all observed as national public holidays.
-- **Politics:** Malaysia's rotating elective monarchy is a rare constitutional arrangement in which the head of state changes every five years by agreement among the country's hereditary Malay rulers.
-- **Local pride:** Pride in multicultural harmony and a shared food culture that blends Malay, Chinese, and Indian influences.
+- **Politics:** Malaysia's head of state, the Yang di-Pertuan Agong, is elected for a five-year term from among the nine hereditary Malay state rulers, with the position rotating by informal agreement.
+- **Local pride:** Pride in nasi lemak, coconut-milk rice served with sambal, anchovies and egg, widely regarded as the national dish.
 
 ## Maldives
 
 - The Maldives is the lowest-lying country on Earth, with an average ground level of only about 1.5 meters above sea level and a highest natural point of roughly 2.4 meters.
-- It is made up of around 1,192 coral islands grouped into 26 natural atolls, of which only about 200 are inhabited.
-- **History:** The islands converted from Buddhism to Islam in the mid-12th century, and the country later became a republic in 1968 after ending centuries of sultanate rule.
-- **Culture:** Boduberu, a traditional drumming and dance performance, is a signature art form, and garudhiya (clear tuna fish soup) is a cornerstone of everyday cuisine.
-- **Politics:** The Maldives is a presidential republic with a unicameral People's Majlis; it adopted a new constitution in 2008 that ended decades of single-leader rule and introduced multi-party elections.
-- **Local pride:** A deep pride in seafaring and pole-and-line tuna fishing, seen as a sustainable livelihood passed down through generations.
+- It consists of 1,192 coral islands in a double chain of 26 atolls, most of them uninhabited.
+- **History:** The last Buddhist king converted to Islam in the 12th century (traditionally dated 1153), and the country became a republic in 1968, ending a monarchy of more than 800 years.
+- **Culture:** Boduberu, a traditional drumming and dance performance whose name means 'big drum', is a well-known art form, and garudhiya, a clear tuna broth, is a long-standing traditional dish.
+- **Politics:** The Maldives is a presidential republic with a unicameral People's Majlis; its 2008 constitution enshrined the separation of powers and paved the way for the first multi-party presidential election, held that year.
+- **Local pride:** Pride in pole-and-line tuna fishing, a traditional method that accounts for most of the skipjack catch and is credited with helping sustain tuna resources.
 
 ## Mali
 
-- Timbuktu was once one of the world's leading centers of Islamic scholarship, home to hundreds of thousands of medieval manuscripts on subjects from astronomy to law.
-- Mansa Musa, a 14th-century ruler of the Mali Empire, is often described as one of the wealthiest individuals in recorded history because of his empire's control over West African gold and salt trade routes.
-- **History:** The medieval Mali Empire (13th-16th centuries) was one of the largest and richest empires in African history before the region became a French colony, gaining independence in 1960.
+- Timbuktu preserves a vast collection of historic manuscripts, close to a million by one estimate, including works on astronomy and mathematics.
+- Mansa Musa, a 14th-century ruler of the Mali Empire, is believed to be one of the wealthiest individuals in history; by the early 14th century Mali was reportedly the source of almost half the Old World's exported gold.
+- **History:** The Mali Empire, founded around 1235, covered roughly 1.2 million square kilometres by 1350 and declined in the 16th century; the region later became a French colony and Mali gained independence in 1960.
 - **Culture:** Griots (jeliw), hereditary oral historians and musicians, preserve genealogies and history through song and the kora, a 21-string harp-lute.
-- **Politics:** Mali has been governed by a military-led transitional authority since coups in 2020 and 2021 suspended the previous constitution in favor of a transitional charter.
-- **Local pride:** Pride in the griot oral storytelling and musical tradition, and in strong communal hospitality customs passed down through generations.
+- **Politics:** Mali has been governed by a military-led transitional authority since coups in 2020 and 2021; in May 2025 all political parties were dissolved, and on 4 July 2025 the transitional council gave Assimi Goita a five-year presidential term renewable without elections.
+- **Local pride:** Pride in bogolanfini, the hand-dyed mud-cloth textile of Mali, painted with fermented river mud.
 
 ## Malta
 
-- Malta's megalithic temples, such as those at Ġgantija, date to roughly 3600-2500 BCE, making them older than Stonehenge and the Egyptian pyramids.
-- Malta is one of the most densely populated sovereign states in the world despite its small territory of about 316 square kilometers.
+- Malta's megalithic temples, such as those at Ggantija, date to roughly 3600-2500 BCE, and the Ggantija phase (about 3600-3000 BCE) predates Stonehenge's earliest works (about 3100 BCE) and the Egyptian pyramids.
+- Malta is the ninth most densely populated country in the world, with an area of 316 square kilometers.
 - **History:** The Knights of St. John ruled Malta from 1530 until 1798 and famously repelled a massive Ottoman invasion during the Great Siege of 1565.
-- **Culture:** Maltese is the only Semitic language written in the Latin alphabet and an official EU language, and village festas honoring patron saints, with fireworks and brass bands, mark the summer calendar.
-- **Politics:** Malta is a parliamentary republic with a unicameral House of Representatives, and it is the smallest EU member state by population, with constitutional neutrality enshrined in its founding law.
-- **Local pride:** Pride in tight-knit village community life and warm hospitality extended to neighbors and visitors alike.
+- **Culture:** Maltese is the only Semitic language officially written in the Latin script and is an official EU language, and local festivals celebrating saints' days are a major part of Maltese life.
+- **Politics:** Malta is a parliamentary republic with a unicameral 65-member House of Representatives, and it is the smallest EU member state by population (574,300 residents on 1 January 2025).
+- **Local pride:** Pride in ftira, the Maltese flatbread whose making was inscribed on UNESCO's intangible heritage list in 2020.
 
 ## Marshall Islands
 
 - The United States conducted 67 nuclear weapons tests in the Marshall Islands between 1946 and 1958, including the Castle Bravo test at Bikini Atoll, the largest US nuclear detonation ever.
-- Under a Compact of Free Association with the United States, Marshallese citizens can live and work in the US, and the US maintains military basing rights in the country.
+- Under a Compact of Free Association with the United States, most Marshallese citizens may live and work in the US, and the US is responsible for the country's defense and may operate its armed forces there.
 - **History:** Residents of Bikini Atoll were relocated in 1946 ahead of nuclear testing and have never been able to permanently resettle the atoll due to lingering radioactive contamination.
-- **Culture:** Traditional stick charts, made of wood and shell, were used by navigators to map ocean swells and currents for wayfinding between islands without instruments.
+- **Culture:** Traditional stick charts, made of coconut-frond midribs and shells, served as teaching tools and pre-voyage references for reading ocean swells in wayfinding between atolls.
 - **Politics:** The Marshall Islands is a presidential republic in free association with the United States, with a unicameral parliament, the Nitijela, whose members elect the president.
-- **Local pride:** Pride in strong communal and matrilineal land traditions, and in customs of cooperation and mutual support across island communities.
+- **Local pride:** Pride in the Marshallese language, an official language alongside English and the only language many outer-island residents speak.
 
 ## Martinique
 
 - Martinique uses the euro and is part of the European Union as an outermost region of France.
-- Its rhum agricole, made from fresh sugar cane juice rather than molasses, was the first rum to receive a French AOC designation, in 1996.
-- **History:** In 1902 an eruption of Mount Pelée destroyed the town of Saint-Pierre in minutes and killed roughly 28,000 people.
+- Its rhum agricole, made from fresh sugar cane juice, is protected under French law by the AOC Martinique Rhum Agricole designation.
+- **History:** In 1902 an eruption of Mount Pelee destroyed the town of Saint-Pierre in under a minute, killing almost all of its roughly 28,000 residents.
 - **Culture:** Biguine and zouk music, along with Creole cuisine and a lively pre-Lenten Carnival, are central to Martinican life.
-- **Politics:** Martinique is an overseas department and region of France, and since 2015 it has been governed by a single territorial collectivity with its own assembly and executive council.
-- **Local pride:** Martinicans take pride in their Creole culture and in rhum agricole, a rum-making tradition unique to the French Caribbean.
+- **Politics:** Martinique is an overseas department and region of France; a single territorial collectivity approved by a 2010 referendum, with an Assembly and an Executive Council, replaced the former general and regional councils, with first elections held in December 2015.
+- **Local pride:** Martinicans take pride in the yole ronde, a traditional sailing boat, and in the annual Tour des Yoles Rondes, a multi-stage regatta around the island held in late July and early August.
 
 ## Mauritania
 
-- Mauritania was one of the last countries in the world to abolish slavery, doing so by decree in 1981 and only criminalizing it as a specific offense in 2007.
-- The country hosts one of the world's longest and heaviest trains, an iron-ore freight train that can stretch over two kilometers, running from inland mines to the Atlantic coast.
+- Mauritania was the last country in the world to officially abolish slavery, by presidential decree in 1981, but criminal laws to enforce the ban were only passed in 2007.
+- Mauritania's iron-ore trains, up to 3 km long and among the longest and heaviest in the world, run 704 km from the mines at Zouerat to the port of Nouadhibou on the Atlantic coast.
 - **History:** Mauritania gained independence from France in 1960, and its subsequent political history has been marked by a series of military coups.
-- **Culture:** Nomadic Moorish culture, expressed through flowing boubou robes and a strong oral poetry tradition in Hassaniya Arabic, remains central to national identity.
-- **Politics:** Mauritania is an Islamic republic with a semi-presidential system, and the military has repeatedly played a decisive role in transfers of power through coups.
-- **Local pride:** Pride in nomadic hospitality customs, especially the elaborate multi-round tea ceremony offered to guests as a sign of welcome.
+- **Culture:** Traditional dress such as the boubou and daraa robes and a strong tradition of Hassaniya oral poetry are part of Mauritanian culture.
+- **Politics:** Mauritania is a unitary semi-presidential Islamic republic; the 2019 election of Mohamed Ould Ghazouani is described as its first peaceful transfer of power since independence, and he was re-elected in 2024.
+- **Local pride:** Pride in the tradition of tea hospitality, in which guests are traditionally served three glasses of tea.
 
 ## Mauritius
 
-- Mauritius was the only known home of the dodo bird, which went extinct in the late 17th century within decades of the island's settlement.
-- The island had no indigenous population before European contact and was settled successively by the Dutch, French, and British, resulting in a population with no single ethnic or religious majority.
-- **History:** Mauritius gained independence from Britain in 1968 and became a republic within the Commonwealth in 1992, while retaining a Westminster-style parliamentary system throughout.
-- **Culture:** Sega, a music and dance style born among enslaved people on the island, remains the country's signature performing art, alongside a cuisine blending Indian, Creole, Chinese, and French influences.
-- **Politics:** Mauritius is a parliamentary republic and is widely regarded as one of Africa's most stable democracies, with a consistent record of peaceful transfers of power.
-- **Local pride:** Pride in warm island hospitality and a strong work ethic that has helped drive the country's economic development relative to its regional peers.
+- Mauritius was the only known home of the dodo, whose last widely accepted sighting was in 1662, about 64 years after the Dutch first recorded the bird.
+- The island was uninhabited before its first recorded visit by Arab sailors in the late 10th century and was later ruled by the Dutch, French and British; in the 2022 census Hindus made up 47.9% of residents, Christians 32.3% and Muslims 18.2%, so no religion holds a majority.
+- **History:** Mauritius gained independence from Britain in 1968 and became a republic in 1992.
+- **Culture:** Sega is a major music genre of Mauritius, alongside its fusion genre seggae and Bhojpuri folk songs, and the cuisine combines Indian, Creole, French and Chinese cooking.
+- **Politics:** Mauritius is a parliamentary republic with a Westminster-style government and a unicameral National Assembly; the Economist Intelligence Unit rates it a 'full democracy', and power has changed hands peacefully through elections, including in 2024.
+- **Local pride:** Pride in a calendar where Diwali, Eid al-Fitr, the Chinese Spring Festival and Christmas are all public holidays.
 
 ## Mayotte
 
-- Mayotte is surrounded by one of the largest enclosed lagoons in the world, protected by a barrier reef.
-- Mayotte is the most densely populated department of France outside the Paris region, with hundreds of thousands of residents on an island of about 375 square kilometres.
-- **History:** Mayotte was ceded to France in 1841, and its residents voted in a 2009 referendum, by a large majority, to become a French department, which took effect in 2011.
-- **Culture:** Shimaore and Kibushi are the two main local languages, and the debaa, a devotional singing and drumming tradition performed by women, is an important cultural practice.
+- Mayotte is surrounded by a coral barrier reef that encloses a lagoon described as one of the largest and deepest in the world.
+- Mayotte had about 320,900 residents in January 2024 on an island of roughly 374 square kilometres, a density of about 858 people per square kilometre.
+- **History:** Mayotte was sold to France in 1841, and in a 2009 referendum 95.5% of voters backed becoming a French department, which took effect in 2011.
+- **Culture:** The debaa, a traditional blend of dance, music and song reserved exclusively for women, is performed on Mayotte.
 - **Politics:** Mayotte is an overseas department of France and an outermost region of the European Union, though the Comoros also claims the island and the matter has been the subject of United Nations resolutions.
-- **Local pride:** Mahorais are proud of their local languages and traditions, such as women's debaa singing.
+- **Local pride:** Mahorais take pride in Shimaore and Kibushi, the two local languages spoken daily alongside French.
 
 ## Mexico
 
-- Mexico has more Spanish speakers than any other country in the world, including Spain itself.
+- Mexico has the largest number of native Spanish speakers of any country, roughly 130 million.
 - Mexico City is gradually sinking because it was built atop the drained bed of Lake Texcoco, and decades of groundwater extraction have caused significant land subsidence.
 - **History:** The Mexican Revolution of 1910-1920 overthrew a longtime dictatorship and reshaped the country's social and political structures for the century that followed.
 - **Culture:** Día de los Muertos (Day of the Dead), a UNESCO-recognized tradition honoring deceased relatives with altars and offerings, is a defining national custom.
-- **Politics:** Mexico is a federal presidential republic of 32 states, and its constitution limits the president to a single six-year term with no possibility of re-election.
-- **Local pride:** Pride in a rich culinary heritage, from mole to fresh tortillas, and in close-knit extended-family traditions that anchor daily life.
+- **Politics:** Mexico is a federal presidential republic of 31 states plus Mexico City, and its constitution limits the president to a single six-year term with no possibility of re-election.
+- **Local pride:** Pride in traditional Mexican cuisine, inscribed by UNESCO in 2010 as intangible cultural heritage, built on corn, beans and chili, milpa farming and nixtamalization.
 
 ## Micronesia
 
-- The Federated States of Micronesia is composed of four states, Yap, Chuuk, Pohnpei, and Kosrae, each with its own distinct language and customs.
+- The Federated States of Micronesia is composed of four states, Yap, Chuuk, Pohnpei, and Kosrae, and Chuukese, Kosraean, Pohnpeian and Yapese are recognized regional languages.
 - Nan Madol, a ruined city of massive basalt structures built on artificial islets off Pohnpei, is sometimes called the 'Venice of the Pacific' and is a UNESCO World Heritage site.
 - **History:** The islands passed successively under Spanish, German, and Japanese administration before becoming a US-administered UN trust territory after World War II, gaining independence in 1986.
 - **Culture:** On Yap, giant carved limestone discs known as rai serve as traditional stone money, exchanged in customary transactions even though they are rarely moved.
-- **Politics:** Micronesia is a federal presidential republic in free association with the United States, with a unicameral Congress that elects the president and vice president from among its at-large senators.
-- **Local pride:** Pride in strong outer-island systems of customary chiefs and communal land tenure that operate alongside elected government, and in reciprocal customs of sharing and mutual obligation across island communities.
+- **Politics:** Micronesia is a federal republic in free association with the United States, with a unicameral 14-member Congress that elects the president and vice president from among its four at-large senators.
+- **Local pride:** Pride in sakau, Pohnpei's name for kava, a traditional drink prepared by pressing the root mixed with hibiscus bark.
 
 ## Moldova
 
-- Moldova is home to Mileștii Mici, a wine cellar complex with roughly 200 kilometers of underground tunnels holding one of the world's largest wine collections.
-- Moldova ranks among the poorest countries in Europe by conventional GDP-per-capita measures, despite sitting on some of the region's most fertile farmland.
+- Moldova is home to Mileștii Mici, an underground wine cellar complex whose collection was listed by Guinness World Records in 2007 as the largest in the world.
+- Moldova's fertile chernozem soil supports wheat, corn, barley and sugar beet, and food processing linked to agriculture accounts for about 40% of GDP.
 - **History:** The Transnistria region declared independence from Moldova in 1990, leading to a brief war in 1992 whose underlying dispute remains unresolved.
-- **Culture:** Winemaking traditions in Moldova date back thousands of years, and folk ensembles performing the hora circle dance to instruments like the cimbalom remain popular at festivals.
+- **Culture:** Grape growing and winemaking between the Dniester and Prut rivers is said to date back 4,000-5,000 years, and the hora, a circle dance, is traditionally accompanied by instruments such as the cimbalom.
 - **Politics:** Moldova is a parliamentary republic with a unicameral Parliament; Transnistria operates as a de facto self-governing breakaway region not under the control of the central government in Chișinău.
-- **Local pride:** Pride in warm rural hospitality and close family and neighborly bonds that anchor community life in the countryside.
+- **Local pride:** Pride in Mărțișor, the 1 March tradition of exchanging red-and-white tasselled charms, which UNESCO lists as a shared Romanian-Moldovan practice.
 
 ## Monaco
 
 - Monaco is the second-smallest sovereign state in the world after Vatican City, covering just over 2 square kilometers, and it has expanded its territory by reclaiming land from the sea.
-- It has the highest population density of any country in the world.
-- **History:** The House of Grimaldi has ruled Monaco almost continuously since 1297, making it one of the longest-reigning royal houses in Europe.
+- It has the highest population density of any sovereign state in the world.
+- **History:** The House of Grimaldi has ruled Monaco, with brief interruptions, since 1297.
 - **Culture:** The Monaco Grand Prix, run through the streets of the city since 1929, is one of the most prestigious events in motorsport.
-- **Politics:** Monaco is a constitutional monarchy in which the reigning prince retains significant executive powers alongside a unicameral National Council, and residents (other than French nationals) pay no personal income tax under a longstanding agreement with France.
-- **Local pride:** Pride in a strong culture of civic order and safety, and in a cosmopolitan community drawn from around the world.
+- **Politics:** Monaco is a constitutional monarchy in which the reigning prince retains most of the governing power alongside a unicameral 24-seat National Council, and it levies no personal income tax except on French citizens.
+- **Local pride:** Pride in the festival of Sainte Dévote, the patron saint, with a symbolic boat burned in Port Hercules on the eve of her feast day, 27 January, followed by a Mass and a procession of her relics.
 
 ## Mongolia
 
 - Mongolia is the least densely populated sovereign country in the world, with vast open steppe far outnumbering its people.
 - A substantial share of Mongolians still live as nomadic or semi-nomadic herders, moving seasonally with livestock and living in traditional felt gers (yurts).
 - **History:** Under Genghis Khan in the 13th century, Mongolia became the center of the largest contiguous land empire in history.
-- **Culture:** The annual Naadam festival showcases the 'three manly games' of wrestling, horse racing, and archery, alongside khoomii, a distinctive form of throat singing.
-- **Politics:** Mongolia is a semi-presidential parliamentary republic with a unicameral State Great Khural, and it transitioned peacefully from one-party communist rule to multi-party democracy in 1990-92.
-- **Local pride:** Pride in warm hospitality traditions toward travelers and guests, and in communal foods like airag, fermented mare's milk, shared during gatherings.
+- **Culture:** The annual Naadam festival showcases the 'three games of men' of wrestling, horse racing, and archery, and Mongolian throat singing is a distinctive traditional art.
+- **Politics:** Mongolia is a semi-presidential republic with a unicameral 126-seat State Great Khural, and it held its first multi-party elections after a largely nonviolent revolution in 1990.
+- **Local pride:** Pride in horse culture: Mongolia's end-of-2025 livestock census counted 5.1 million horses, more than its human population of roughly 3.6 million, and horses are central to Naadam racing and herding life.
 
 ## Montenegro
 
-- Montenegro's name translates to 'Black Mountain,' reflecting the dark, densely forested peaks that dominate its rugged interior.
-- The Tara River Canyon in northern Montenegro is the deepest canyon in Europe, plunging over 1,000 meters in places.
-- **History:** Montenegro regained full independence in 2006 following a referendum that dissolved its state union with Serbia.
-- **Culture:** The Njeguši region is renowned for its smoked ham (pršut) and cheese, and the country has a long tradition of oral epic poetry celebrating its mountain warrior history.
-- **Politics:** Montenegro is a parliamentary republic with a unicameral Parliament; it joined NATO in 2017 and is a candidate for European Union membership.
-- **Local pride:** Pride in warm hospitality toward guests and in a strong sense of family honor and community loyalty passed down through generations.
+- Montenegro's name translates the local Crna Gora, meaning 'Black Mountain'.
+- The Tara River Canyon in northern Montenegro is about 1,300 meters deep at its maximum and is described as the deepest canyon in continental Europe.
+- **History:** Montenegro declared independence on 3 June 2006, after a 21 May referendum in which 55.5% voted in favour.
+- **Culture:** Montenegro has a long oral epic tradition in which singers called guslars performed tales of heroes and battles to the accompaniment of the gusle, a one-stringed instrument.
+- **Politics:** Montenegro is a parliamentary republic with a unicameral 81-member Parliament; it joined NATO in 2017 and has been a candidate for European Union membership since 2010.
+- **Local pride:** Montenegrins take pride in their water polo team, which won the 2008 European Championship and has finished fourth at three Olympic Games.
 
 ## Montserrat
 
 - Montserrat is nicknamed the Emerald Isle of the Caribbean because of its green landscape and Irish heritage.
 - Montserrat has a population of only a few thousand people, and the southern half of the island is largely an exclusion zone because of volcanic activity.
 - **History:** In 1995 the Soufrière Hills volcano began erupting, destroying the capital Plymouth and prompting more than half of the population to leave the island.
-- **Culture:** Montserrat is one of the few places outside Ireland where St Patrick's Day is a public holiday, and the week-long festival also commemorates a slave uprising planned for 17 March 1768.
+- **Culture:** Montserrat observes St Patrick's Day as a public holiday, a practice dating from 1985 that also commemorates a failed slave uprising on 17 March 1768.
 - **Politics:** Montserrat is a British Overseas Territory with a governor appointed by the monarch, an elected Legislative Assembly and a Premier who heads the government.
-- **Local pride:** Montserratians are proud of the resilience and community spirit that kept the island going and rebuilding after the volcanic crisis.
+- **Local pride:** Montserratians take pride in goat water, a stew of goat meat that is the island's national dish.
 
 ## Morocco
 
-- The University of al-Qarawiyyin in Fez, founded in 859 CE, is recognized by UNESCO and Guinness World Records as the oldest continuously operating university in the world.
+- The University of al-Qarawiyyin in Fez, traditionally dated to 859 CE, is credited by UNESCO and Guinness World Records as the oldest continually operating higher learning institution in the world, though some scholars dispute that description.
 - Morocco withdrew from the Organisation of African Unity in 1984 over the Western Sahara dispute and only rejoined the African Union in 2017, after more than three decades outside continental bodies.
 - **History:** Morocco became a French and Spanish protectorate in 1912 and regained full independence in 1956.
-- **Culture:** The offering of sweet mint tea, poured from a height into small glasses, is a central ritual of Moroccan hospitality, alongside intricate zellige tilework and Berber-Arab architectural traditions.
-- **Politics:** Morocco is a constitutional monarchy in which the king holds significant religious and political authority as 'Commander of the Faithful,' alongside a bicameral parliament; the Western Sahara territory is administered largely by Morocco, but its sovereignty remains disputed, with the Polisario Front's Sahrawi Arab Democratic Republic also claiming it, and international recognition of each position varies by country.
-- **Local pride:** Pride in skilled craftsmanship such as weaving and leatherwork, and in warm, close-knit family and neighborhood ties.
+- **Culture:** Sweet mint tea, poured from a height into small glasses, is a central social ritual in Morocco, alongside zellige tilework and Maghrebi-Andalusian art and architecture.
+- **Politics:** Morocco is a semi-constitutional monarchy in which the king holds the title 'Commander of the Faithful' alongside a bicameral parliament; as of late 2025 Morocco administers about 70-80% of Western Sahara, the rest is held by the Polisario Front's Sahrawi Arab Democratic Republic, the UN lists the territory as non-self-governing, and international positions on sovereignty vary by country.
+- **Local pride:** Moroccans take pride in their national football team becoming the first African side to reach a World Cup semi-final, at Qatar 2022.
 
 ## Moselle, Sauer and Our
 
 - The Moselle, Sauer and Our form long stretches of the border between Germany and Luxembourg, and the Sauer runs along the border for about its last 50 kilometres before joining the Moselle.
 - The village of Schengen, on the Moselle, sits at the point where Germany, France and Luxembourg meet.
-- **History:** The Schengen Agreement, which began the abolition of border checks in Europe, was signed on 14 June 1985 on a boat on the Moselle near Schengen.
-- **Culture:** The Luxembourg Moselle valley is wine country, known for crisp white wines including Elbling, Riesling and Auxerrois, and wine festivals take place along the river banks.
-- **Politics:** The border stretches of the three rivers are a condominium: Germany and Luxembourg jointly hold sovereignty over the water itself rather than splitting it down the middle, an arrangement dating to the 1816 Treaty of Aachen and reaffirmed by a 1984 border treaty.
-- **Local pride:** Riverside communities on both banks are proud of their shared winemaking tradition and the easy friendship of neighbours who cross the water daily.
+- **History:** The Schengen Agreement, which began the abolition of border checks in Europe, was signed on 14 June 1985 at Schengen on the Moselle.
+- **Culture:** The Luxembourg Moselle valley is wine country, known for white wines including Elbling, Riesling and Auxerrois.
+- **Politics:** The Moselle, Sauer and Our form a condominium between Germany and Luxembourg: the two countries jointly administer the water along the border rather than splitting it down the middle, an arrangement dating to 1816.
+- **Local pride:** Riverside winegrowers on the Luxembourg bank take pride in Moselle wines, including the sparkling Crémant de Luxembourg made in the valley.
 
 ## Mozambique
 
-- Mozambique's Indian Ocean coastline stretches roughly 2,500 kilometers, among the longest of any African country.
-- Although Portuguese is the sole official language, most Mozambicans speak a Bantu language at home, and colorful capulana wrap cloths are everyday traditional dress.
-- **History:** A 16-year civil war between the FRELIMO government and RENAMO rebels followed independence from Portugal in 1975, lasting until a 1992 peace accord.
-- **Culture:** Marrabenta, a guitar-driven music and dance genre blending Portuguese and local rhythms, is considered the country's signature popular music style.
-- **Politics:** Mozambique is a presidential republic in which the FRELIMO party has held power continuously since independence in 1975.
-- **Local pride:** Pride in strong communal resilience and cooperation, and in close extended-family and neighborhood bonds that anchor daily life.
+- Mozambique's Indian Ocean coastline stretches roughly 2,300 to 2,500 kilometers, depending on the source.
+- Portuguese is the only official language, but the population is overwhelmingly Bantu, and the capulana, a wrapped sarong-style cloth, is traditional dress worn mainly in Mozambique.
+- **History:** A civil war between the FRELIMO government and RENAMO rebels lasted from 1977 to 1992, beginning two years after independence from Portugal in 1975, and ended with the Rome General Peace Accords in October 1992.
+- **Culture:** Marrabenta, a dance music blending traditional Mozambican rhythms with Portuguese folk music, emerged in Maputo in the 1930s and 1940s and is celebrated at an annual festival in the capital.
+- **Politics:** Mozambique is a semi-presidential republic in which FRELIMO has governed continuously since independence in 1975; Daniel Chapo, of FRELIMO, was sworn in as president on 15 January 2025.
+- **Local pride:** Mozambicans take pride in matapa, a stew of pounded cassava leaves cooked with peanuts and coconut milk, one of the country's best-known dishes.
 
 ## Myanmar
 
-- The ancient city of Bagan contains the remains of over 2,000 Buddhist temples and pagodas built between the 9th and 13th centuries, one of the densest concentrations of religious monuments anywhere.
-- Myanmar was ruled by military governments for nearly 50 years, from 1962 to 2011, after which a decade of gradual political and economic reform began.
+- The ancient city of Bagan has the remains of over 2,000 Buddhist temples and pagodas, most built between the 11th and 13th centuries.
+- Myanmar was under military rule from the 1962 coup until the junta was dissolved in 2011, after which a partial political transition began.
 - **History:** Myanmar (then Burma) gained independence from Britain in 1948 and has since experienced some of the longest-running civil conflicts in the world involving various ethnic armed organizations.
-- **Culture:** Thanaka, a pale cosmetic paste made from ground bark, is worn by many as both sunscreen and a beauty tradition, and the longyi, a wraparound cloth, is everyday dress for men and women alike.
-- **Politics:** Myanmar has been governed by a military-led State Administration Council since a February 2021 coup removed the elected civilian government, with a state of emergency repeatedly extended since then.
-- **Local pride:** Pride in Buddhist devotion and communal merit-making, including widespread support for monks and monasteries.
+- **Culture:** Thanaka, a paste of ground bark applied mainly by women and girls as makeup and sun protection, is a distinctive part of Myanmar's culture, and the longyi, a wraparound cloth, is widely worn by both men and women.
+- **Politics:** Myanmar's military ran the country through the State Administration Council after the February 2021 coup, replaced it in July 2025 with a State Security and Peace Commission, and following elections Min Aung Hlaing became president on 10 April 2026.
+- **Local pride:** Many people in Myanmar take pride in Thingyan, the mid-April water festival that marks the Burmese New Year.
 
 ## Nakhchivan Autonomous Republic
 
 - Nakhchivan is an exclave of Azerbaijan, separated from the rest of the country by Armenian territory and bordering Armenia, Iran and Turkey.
 - Nakhchivan has a dry continental climate with very hot summers, and it is known for its salt deposits and mineral springs.
 - **History:** In 1921 treaties signed in Moscow and Kars placed Nakhchivan under Azerbaijani administration, and it became an autonomous republic within the Azerbaijan SSR in 1924.
-- **Culture:** Local tradition links the founding of the city of Nakhchivan to Noah, and the region is known for its carpet weaving and regional cuisine.
+- **Culture:** Nakhchivan city has a Noah's Mausoleum, reflecting a long-standing tradition linking the city to Noah, and is home to the Nakhchivan State Carpet Museum.
 - **Politics:** Nakhchivan is an autonomous republic within Azerbaijan, with its own constitution, a legislature called the Supreme Assembly and its own cabinet of ministers.
-- **Local pride:** Nakhchivan residents are proud of their reputation for hospitality and their traditions of carpet weaving and regional cooking.
+- **Local pride:** Residents take pride in Badamli mineral water from the Shahbuz district, where a resort has been built near the mineral water plant.
 
 ## Namibia
 
-- Namibia was the first country in the world to write environmental protection into its constitution, in 1990.
-- The Namib Desert along its coast is considered one of the oldest deserts on Earth, with dune fields at Sossusvlei ranking among the tallest in the world.
+- Namibia's constitution directs the state to maintain ecosystems, essential ecological processes and biological diversity, making it one of the few countries to address conservation in its constitution.
+- The Namib Desert along its coast is considered one of the oldest deserts on Earth, and the dunes at Sossusvlei are among the highest in the world.
 - **History:** Namibia, formerly German South West Africa and then administered by South Africa, gained independence in 1990 after a long liberation war led by SWAPO.
 - **Culture:** Namibia is home to the Himba people, semi-nomadic pastoralists known for coating their skin and hair with a mixture of ochre and butterfat called otjize.
 - **Politics:** Namibia is a semi-presidential republic with a bicameral parliament; SWAPO has been the governing party continuously since independence in 1990.
-- **Local pride:** Namibians take pride in their country's peaceful, stable democracy and in community-based conservation programs that let local residents manage wildlife on their own land.
+- **Local pride:** Namibians take pride in community-based conservation programs that give local communities rights to manage wildlife and benefit from tourism.
 
 ## Nauru
 
-- Nauru is the world's smallest island nation and the smallest republic, covering only about 21 square kilometers.
-- Phosphate mining once made Nauru one of the wealthiest countries per capita in the world, but depleted reserves later left its economy in sharp decline.
+- Nauru covers only about 21 square kilometers and is one of the world's smallest countries, with roughly 12,000 people.
+- Strip-mining for phosphate from 1900 devastated about 80% of Nauru's land, and with reserves largely exhausted by the 1990s, mismanagement of the mining wealth later caused serious financial trouble.
 - **History:** Nauru became independent in 1968 after being administered as a UN trust territory by Australia, following earlier periods of German and Japanese control.
-- **Culture:** Nauru has no official capital city; government buildings are simply concentrated in the Yaren district, and social life centers on close extended-family and clan ties.
-- **Politics:** Nauru's parliament has only 19 members, among the smallest national legislatures in the world, and the president is elected by fellow members of parliament rather than by direct popular vote.
-- **Local pride:** Nauruans take pride in their close-knit island community and their resilience in rebuilding livelihoods after the collapse of the phosphate economy.
+- **Culture:** Yaren is Nauru's de facto capital, and the twelve points of the star on its flag represent the island's twelve traditional clans.
+- **Politics:** Nauru has a 19-member unicameral parliament, which elects the president rather than the president being chosen by direct popular vote.
+- **Local pride:** Nauruans take pride in Australian rules football, the most popular sport and considered the national team sport, and in their weightlifters' ten Commonwealth Games gold medals.
 
 ## Nepal
 
 - Nepal contains eight of the world's ten highest mountains, including Mount Everest, the tallest peak on Earth.
 - Nepal was never formally colonized by a foreign power, remaining an independent kingdom throughout the era of European colonial expansion in South Asia.
-- **History:** Nepal abolished its 240-year-old monarchy in 2008, becoming a federal democratic republic after a decade-long Maoist insurgency that ended in 2006.
-- **Culture:** Nepal is the birthplace of the Buddha, in Lumbini, and its calendar of festivals blends Hindu and Buddhist traditions, most prominently Dashain and Tihar.
-- **Politics:** Nepal is a federal parliamentary republic under a 2015 constitution that divided the country into seven provinces, with a ceremonial president and an executive prime minister.
-- **Local pride:** Nepalis take pride in their mountaineering and high-altitude guiding traditions and in the warmth of hospitality they extend to visitors.
+- **History:** Nepal abolished its monarchy in 2008, becoming a republic after a decade-long Maoist insurgency that ended in 2006.
+- **Culture:** Lumbini in Nepal is the traditional birthplace of the Buddha, and its festival calendar, led by Dashain and Tihar, is largely Hindu with Buddhist influence.
+- **Politics:** Nepal is a federal parliamentary republic under a 2015 constitution that created seven provinces; the Rastriya Swatantra Party won the March 2026 election and its leader, Balen Shah, was sworn in as prime minister on 27 March 2026.
+- **Local pride:** Nepalis take pride in their national flag, the only non-rectangular national flag in the world.
 
 ## Netherlands
 
-- About a quarter of the Netherlands lies below sea level, kept dry by an extensive system of dikes, dams, and pumping stations.
-- Despite its small size, the Netherlands is the world's second-largest exporter of agricultural products by value, after only the United States.
-- **History:** The Dutch East India Company, founded in 1602 during the Dutch Golden Age, is widely regarded as the world's first multinational corporation and helped make the Dutch Republic a dominant global trading power.
-- **Culture:** Cycling is woven into everyday Dutch life, with more bicycles in the country than people.
-- **Politics:** The Netherlands is a constitutional monarchy with a parliamentary system; the monarch's role is largely ceremonial, and proportional representation typically produces multi-party coalition governments.
-- **Local pride:** The Dutch take pride in their culture of pragmatic tolerance, directness, and consensus-based decision-making, often called the 'poldermodel.'
+- About a quarter of the Netherlands lies below sea level, much of it reclaimed land known as polders.
+- The Netherlands is the world's second-largest exporter of food and agricultural products by value.
+- **History:** The Dutch East India Company, founded in 1602 during the Dutch Golden Age, is sometimes considered the world's first multinational corporation.
+- **Culture:** Cycling is the Netherlands' second most common mode of transport, accounting for about 27% of trips nationwide.
+- **Politics:** The Netherlands is a parliamentary constitutional monarchy; the 150-seat House of Representatives is elected by party-list proportional representation, and because no party usually wins a majority, cabinets are coalitions.
+- **Local pride:** Dutch speed skating is a national passion: the great majority of the Netherlands' Winter Olympic medals have come in speed skating, and the Elfstedentocht, a 200 km skating race through eleven Frisian cities that runs only when the ice is thick enough, was last held in 1997.
 
 ## New Caledonia
 
-- New Caledonia has one of the world's largest lagoons, and it also holds some of the largest known nickel reserves.
-- The Kanak people are the indigenous population, and the territory has long been shaped by a mix of Kanak, European, Polynesian and Asian communities.
+- New Caledonia's lagoon, with six marine zones inscribed as a UNESCO World Heritage Site in 2008, covers about 24,000 square kilometers.
+- The Tjibaou Cultural Centre in Nouméa, designed by Renzo Piano, celebrates Kanak culture and promotes Kanak languages, archaeology and arts.
 - **History:** France took possession of New Caledonia in 1853 and began using it as a penal colony in 1864.
-- **Culture:** Bougna, a Kanak dish of yam, taro and meat or fish wrapped in banana leaves and cooked in an earth oven, is a traditional feast food, and the customary gift exchange known as la coutume plays an important role in Kanak social life.
-- **Politics:** New Caledonia is a French special collectivity under the 1998 Nouméa Accord, with its own Congress and government, and three referendums on independence were held in 2018, 2020 and 2021, while discussions about its future status continue between the parties.
-- **Local pride:** Many New Caledonians are proud of customary traditions, especially la coutume, which values respect, hospitality and exchange between families and clans.
+- **Culture:** Bougna, a Kanak feast dish of taro, yam and other starchy vegetables with chicken, fish or shellfish, is wrapped in banana leaves and cooked in an earth oven.
+- **Politics:** New Caledonia is a French sui generis collectivity under the 1998 Nouméa Accord, with its own Congress and government; independence referendums were held in 2018, 2020 and 2021, and a July 2025 agreement signed at Bougival to create a 'State of New Caledonia' within France was rejected by the main pro-independence coalition, the FLNKS, with its local referendum delayed and negotiations stalled as of early 2026.
+- **Local pride:** Many New Caledonians point to the nickel industry, which makes up about 90% of export value excluding tourism, as a cornerstone of the territory's economy.
 
 ## New Zealand
 
 - New Zealand became the first self-governing country in the world to grant women the right to vote, in 1893.
 - New Zealand has long had far more sheep than people, though the ratio has fallen sharply from its mid-20th-century peak.
-- **History:** The Treaty of Waitangi, signed in 1840 between the British Crown and Māori chiefs, is regarded as New Zealand's founding constitutional document.
-- **Culture:** The haka, a ceremonial Māori posture dance, is performed at significant occasions, most famously by the national rugby team before international matches.
+- **History:** The Treaty of Waitangi, signed in 1840 between the British Crown and Māori chiefs, is increasingly recognised as a founding document in New Zealand's unwritten constitution.
+- **Culture:** The haka, a Māori ceremonial posture dance, is performed to welcome guests and mark great occasions, and is widely known from New Zealand sports teams such as the All Blacks performing it before international matches.
 - **Politics:** New Zealand has no single written constitution, instead relying on a mix of statutes, treaties, and conventions, and elects its unicameral parliament using a mixed-member proportional system.
-- **Local pride:** New Zealanders take pride in a do-it-yourself resourcefulness often called 'number 8 wire' ingenuity and in their bicultural Māori-Pākehā national identity.
+- **Local pride:** New Zealanders take pride in 'number 8 wire' ingenuity, the do-it-yourself habit of improvising repairs and inventions from whatever is on hand, named after the standard farm fencing wire.
 
 ## Nicaragua
 
-- Lake Nicaragua is one of the few freshwater lakes in the world known to host ocean species such as bull sharks.
+- Lake Nicaragua, the largest freshwater lake in Central America, is home to bull sharks that can travel between the lake and the open ocean via the San Juan River, as well as sawfish and tarpon.
 - Nicaragua has the largest land area of any country in Central America.
-- **History:** The Sandinista revolution overthrew the decades-long Somoza dictatorship in 1979, leading to the US-backed Contra War through much of the 1980s.
-- **Culture:** Nicaraguan culture blends Indigenous, Spanish, and Afro-Caribbean influences, particularly along the Caribbean coast around Bluefields, where marimba and Creole traditions flourish.
-- **Politics:** Nicaragua is a presidential republic; Daniel Ortega has served as president since 2007, and international observers have raised concerns in recent years about the weakening of independent checks on executive power.
-- **Local pride:** Nicaraguans take pride in their strong national poetic and literary tradition and in the warmth of everyday hospitality.
+- **History:** The Sandinistas took power in July 1979, ousting the Somoza dictatorship, and the Contra War followed through the 1980s.
+- **Culture:** Along the Caribbean coast around Bluefields, Creole communities celebrate Palo de Mayo, a May festival of dance and music.
+- **Politics:** Nicaragua is a presidential republic; Daniel Ortega returned to the presidency in 2007, and a 2025 constitutional reform created a co-presidency with Rosario Murillo that formally coordinates the legislative, judicial and electoral branches and the national police, which scholars describe as between competitive authoritarian and fully authoritarian rule.
+- **Local pride:** Nicaraguans take pride in El Güegüense, a satirical 16th-century drama of music, dance and theatre performed each January in Diriamba and recognised by UNESCO in 2005.
 
 ## Niger
 
 - Niger is named for the Niger River, even though most of the country's territory lies within the Sahara Desert.
-- Niger has one of the highest total fertility rates of any country in the world.
-- **History:** Niger gained independence from France in 1960 and has since experienced repeated military takeovers, including a coup in July 2023 that removed the elected president.
-- **Culture:** The Tuareg, traditionally nomadic desert traders, are known for the annual Cure Salée gathering and for men's distinctive indigo veils and turbans, called the tagelmust.
-- **Politics:** Since the 2023 coup, Niger has been governed by a military council (the CNSP) that suspended the constitution, after previously operating as a semi-presidential republic.
-- **Local pride:** Nigeriens take pride in enduring traditions of hospitality and communal resilience in one of the world's harshest climates.
+- Niger's fertility rate, about 6.1 children per woman in 2023 (down from about 7.8 in 1990), is among the factors driving its rapid population growth.
+- **History:** Niger gained independence from France in 1960 and has since experienced five coups d'état, including one on 26 July 2023 that overthrew the civilian government.
+- **Culture:** The Tuareg, traditionally nomadic pastoralists, are known for the tagelmust, the indigo turban-veil worn by men, and take part in the annual Cure Salée gathering at In-Gall.
+- **Politics:** Since the July 2023 coup, Niger has been led by General Abdourahamane Tiani, head of the National Council for the Safeguard of the Homeland, who was sworn in as president on 26 March 2025 for a five-year term under a 2025 transitional charter (as of the latest sources).
+- **Local pride:** Nigeriens take pride in traditional sorro wrestling, one of the traditional sports that endures alongside football.
 
 ## Nigeria
 
 - Nigeria is Africa's most populous country, and its film industry, Nollywood, is one of the largest film producers in the world by number of titles released annually.
 - Nigeria is home to more than 250 ethnic groups and over 500 spoken languages.
 - **History:** Nigeria gained independence from Britain in 1960 and, less than a decade later, endured the Nigerian Civil War (1967–1970) after the eastern region declared itself the breakaway state of Biafra.
-- **Culture:** Nigeria is a leading global center for Afrobeats, a music genre that has grown into an international commercial and cultural force.
-- **Politics:** Nigeria is a federal presidential republic composed of 36 states, and its politics have long followed an informal 'zoning' convention of rotating power between the north and south.
-- **Local pride:** Nigerians take pride in their entrepreneurial drive and in a strong tradition of communal resilience and hospitality across the country's many diverse communities.
+- **Culture:** Nigeria, with Lagos as one of its main production hubs, is a leading source of Afrobeats, a West African pop genre that has grown into an international commercial and cultural force.
+- **Politics:** Nigeria is a federal presidential republic of 36 states and the Federal Capital Territory, with a National Assembly made up of a 360-seat House of Representatives and a 109-seat Senate.
+- **Local pride:** Nigerians are famously proud of their jollof rice, the centrepiece of a friendly West African rivalry over whose version is best.
 
 ## Niue
 
 - Niue is one of the world's largest raised coral islands, and it has a population of fewer than 2,000 people.
-- Niue uses the internet domain .nu and in 2003 declared itself the first country with free wireless internet across the island.
+- Niue's internet domain, .nu, is popular in Sweden because 'nu' means 'now', and Niue became the first country in the world to provide state-funded wireless internet to all inhabitants.
 - **History:** James Cook visited Niue in 1774 but was refused a landing, and he named it Savage Island.
-- **Culture:** The Niuean language, Vagahau Niue, is still widely spoken, and the island's traditional crafts include woven pandanus and hiapo, a painted bark cloth.
-- **Politics:** Niue is a self-governing state in free association with New Zealand since 1974, with its own Premier and 20-member Assembly, while Niueans are New Zealand citizens.
-- **Local pride:** Niueans are proud that a very small community has kept its language, village life and traditions strong.
+- **Culture:** Niuean (Vagahau Niue) is an official language alongside English, and hiapo, a traditional barkcloth made from beaten paper mulberry bark, is a notable art form.
+- **Politics:** Niue has been self-governing in free association with New Zealand since 1974, with a Prime Minister (Dalton Tagelagi since 2020) and a 20-member Assembly, and Niueans are New Zealand citizens.
+- **Local pride:** Niueans take pride in Niue becoming, in 2020, the first entire country designated an International Dark Sky Sanctuary.
 
 ## Norfolk Island
 
 - Norfolk Island's culture and landscape are closely tied to the Norfolk Island pine, which also appears on the island's flag.
-- Norfolk Island has its own time zone offset and a population of around 2,000 people.
-- **History:** In 1856 the descendants of the Bounty mutineers and their Tahitian companions moved from overcrowded Pitcairn Island to Norfolk Island, which had just closed as a penal settlement.
-- **Culture:** Norf'k, a language blending 18th-century English with Tahitian, is spoken on the island, and Bounty Day each 8 June celebrates the arrival of the Pitcairn settlers.
-- **Politics:** Norfolk Island is an external territory of Australia, and since 2016 its local affairs have been run by the Norfolk Island Regional Council, with Australian federal and New South Wales laws applying.
-- **Local pride:** Islanders are proud of their Pitcairn-descended heritage and their unique Norf'k language.
+- Norfolk Island observes UTC+11 standard time (UTC+12 in summer daylight saving), and its 2021 census counted 2,188 residents.
+- **History:** In June 1856 the descendants of the Bounty mutineers and their Tahitian companions moved from Pitcairn Island to Norfolk Island, whose penal settlement had closed in 1855.
+- **Culture:** Bounty Day each 8 June, the island's national holiday, features a re-enactment of the 1856 landing at Kingston Pier and ends with a communal feast and the Bounty Ball.
+- **Politics:** Norfolk Island is an external territory of Australia, and since 2016 its local affairs have been run by the Norfolk Island Regional Council, with most Australian Commonwealth laws extended to the island from 1 July 2016.
+- **Local pride:** Islanders take pride in Norf'k, a language blending 18th-century English and Tahitian that is a co-official language of the island.
 
 ## North Korea
 
-- North Korea uses its own official calendar, the Juche calendar, which counts years starting from 1912, the birth year of founding leader Kim Il Sung.
-- North Korea maintains one of the largest standing militaries in the world relative to its population and remains one of the most isolated countries internationally.
+- North Korea used the Juche calendar, which counted years from 1912, the birth year of founder Kim Il Sung, from 1997 until state media dropped it in 2024.
+- North Korea is highly militarized, with an active-duty army of about 1.28 million that is described as the fourth-largest in the world.
 - **History:** North Korea was established in 1948 amid the division of the Korean peninsula, and the Korean War (1950–1953) ended in an armistice rather than a formal peace treaty, leaving the two Koreas technically still at war.
 - **Culture:** North Korea is known for large-scale synchronized performances called Mass Games, combining gymnastics, dance, and card-stunt displays, most famously in the Arirang festival.
-- **Politics:** North Korea is a one-party state governed by the Workers' Party of Korea under the official ideology of Juche (self-reliance), with top leadership having passed hereditarily within the Kim family since the country's founding.
-- **Local pride:** A widely promoted source of pride among North Koreans is loyalty to family and nation, expressed through disciplined achievement in pursuits such as gymnastics, weightlifting, and other elite sports.
+- **Politics:** North Korea is a one-party state ruled by the Workers' Party of Korea, whose official ideology is Kimilsungism–Kimjongilism, and leadership has passed hereditarily within the Kim family.
+- **Local pride:** North Korean women's football teams have won the FIFA U-17 Women's World Cup in 2008, 2016, 2024 and 2025, and the U-20 title in 2006, 2016 and 2024.
 
 ## North Macedonia
 
 - The country changed its constitutional name from the Republic of Macedonia to North Macedonia in 2019 under the Prespa Agreement, resolving a decades-long naming dispute with Greece.
 - The capital, Skopje, underwent a controversial redevelopment project known as 'Skopje 2014' that added dozens of new statues, monuments, and neoclassical facades to the city center.
-- **History:** North Macedonia declared independence from Yugoslavia in 1991, one of the few former Yugoslav republics to do so without armed conflict.
-- **Culture:** The country has a strong tradition of Eastern Orthodox icon painting alongside folk dances performed in complex, asymmetric rhythms known as oro.
-- **Politics:** North Macedonia is a parliamentary republic that joined NATO in 2020 following resolution of its naming dispute with Greece, and it remains a candidate for European Union membership.
-- **Local pride:** People in North Macedonia take pride in their distinct cultural and linguistic identity and in homemade culinary traditions such as preparing ajvar.
+- **History:** North Macedonia declared independence from Yugoslavia through a peaceful secession in 1991, after a referendum on 8 September 1991.
+- **Culture:** Medieval churches in the country are known for their frescoes and icons, and folk dance includes the oro, a circle dance performed at weddings and holidays.
+- **Politics:** North Macedonia is a parliamentary republic that joined NATO on 27 March 2020 and has been a candidate for European Union membership since 2005.
+- **Local pride:** People in North Macedonia take pride in ajvar, a roasted red-pepper relish that families and neighbours make together in mid-autumn when peppers are most abundant.
 
 ## Northern Cyprus
 
-- Northern Cyprus has a large number of universities relative to its small population, drawing tens of thousands of international students each year, and higher education has become one of its most important economic sectors.
-- A UN-patrolled buffer zone, the Green Line, has divided the island of Cyprus, including the capital Nicosia, since 1974.
-- **History:** The Turkish Republic of Northern Cyprus declared independence in 1983, nearly a decade after Turkey's 1974 military intervention on the island, which followed a coup attempt aimed at union with Greece.
-- **Culture:** Turkish Cypriot cuisine shares strong ties with Turkish and broader Cypriot traditions, including a long-standing practice of making hellim (halloumi) cheese.
-- **Politics:** Northern Cyprus is recognized only by Turkey; the rest of the international community regards the area as part of the Republic of Cyprus, while it is administered de facto by a self-governing Turkish Cypriot administration alongside a Turkish military presence.
-- **Local pride:** Turkish Cypriots take pride in their distinct communal identity and in an easygoing, Mediterranean way of life centered on family and community.
+- Northern Cyprus has about 20 universities, and the Financial Times reported about 100,000 students there in 2024, around 40% from countries other than Turkey, with higher education reported to be a main driver of its economy.
+- A UN-controlled buffer zone, known as the Green Line, runs through Nicosia and across the island of Cyprus.
+- **History:** The Turkish Republic of Northern Cyprus unilaterally declared independence on 15 November 1983, after Turkey's July 1974 military intervention, which followed a Greek junta-backed coup aimed at uniting Cyprus with Greece.
+- **Culture:** Turkish Cypriot cuisine includes hellim (halloumi), described as the national cheese of Cyprus, and bulgur-based koupes (içli köfte).
+- **Politics:** Northern Cyprus is recognised only by Turkey; the Republic of Cyprus and the wider international community regard it as part of the Republic of Cyprus, while a Turkish force estimated at 30,000–40,000 troops is stationed there.
+- **Local pride:** Turkish Cypriots take pride in şeftali kebab, a grilled sausage of minced meat, parsley and onion wrapped in caul fat, and in the meze tradition of Cypriot cooking.
 
 ## Northern Mariana Islands
 
 - The Northern Mariana Islands consist of 14 islands, and most residents live on Saipan, Tinian and Rota.
-- Tinian was the departure point for the aircraft that carried the atomic bombs to Japan in August 1945.
+- Tinian was the departure point for the B-29 aircraft that carried the atomic bombs dropped on Hiroshima and Nagasaki in 1945.
 - **History:** In June 1944 the Battle of Saipan took place during the Pacific War, and the islands later became part of the US-administered Trust Territory of the Pacific Islands.
-- **Culture:** Chamorro and Carolinian are the indigenous languages, and ancient latte stones, stone pillars that supported houses, are a symbol of Chamorro heritage.
-- **Politics:** The Northern Mariana Islands is a commonwealth in political union with the United States under a covenant that took effect in 1986, with residents holding US citizenship, an elected governor and legislature, and a non-voting delegate in the US House of Representatives.
-- **Local pride:** Residents are proud of the Chamorro and Carolinian languages and the communal fiesta tradition that keeps families together.
+- **Culture:** Ancient latte stones, pillars topped with hemispherical capstones raised by the ancient Chamorro people, remain a symbol of Chamorro identity and appear on the territory's flag.
+- **Politics:** The Northern Mariana Islands is a commonwealth under US sovereignty, with the constitution fully effective since 4 November 1986, residents holding US citizenship, an elected governor and legislature, and a non-voting delegate in the US House of Representatives.
+- **Local pride:** Residents take pride in keeping Chamorro and Carolinian, the indigenous languages, as official languages of the commonwealth alongside English.
 
 ## Norway
 
 - Norway has channeled decades of oil and gas revenue into a sovereign wealth fund that is the largest of its kind in the world.
-- Parts of Norway lie far enough north to experience the midnight sun, with continuous daylight for weeks each summer above the Arctic Circle.
-- **History:** Norway was in a union with Sweden until 1905, when it peacefully achieved full independence following a national referendum.
-- **Culture:** Skiing is deeply woven into Norwegian identity, and the concept of friluftsliv, or open-air living, shapes a strong national culture of outdoor recreation.
+- In Norwegian cities above the Arctic Circle such as Tromso, the sun does not set from late May to mid-July, and farther north the midnight sun lasts longer.
+- **History:** Norway was in a personal union with Sweden from 1814 until the union was dissolved on 7 June 1905.
+- **Culture:** Sports are a central part of Norwegian culture, and Norway is known internationally for its role in developing modern winter sports, particularly skiing. Its allemannsrett, a customary right of access to uncultivated countryside, was codified in the 1957 Outdoor Recreation Act.
 - **Politics:** Norway is a constitutional monarchy with a parliamentary system (the Storting); notably, it has twice voted against joining the European Union and instead participates in the European Economic Area.
-- **Local pride:** Norwegians take pride in their strong social welfare system and commitment to equality, and in a long seafaring and fishing heritage.
+- **Local pride:** Norwegians take pride in 17 May Constitution Day, celebrated with local children's parades led by school bands in what is described as a people's day with limited military participation.
 
 ## Oecusse
 
 - Oecusse is an exclave of Timor-Leste on the island of Timor, surrounded on land by Indonesian West Timor.
-- Oecusse is home to around 80,000 people and has its own local language, Baikeno, spoken by the Atoni people.
-- **History:** The Portuguese established themselves on the coast at Lifau around the 16th century, and Lifau served as the capital of Portuguese Timor until 1769.
-- **Culture:** Weaving of tais, traditional hand-woven cloth, is a well-known craft in Oecusse, with patterns specific to local communities.
-- **Politics:** Oecusse is a Special Administrative Region of Timor-Leste, with a degree of autonomy and its own regional authority, and it hosts a special zone of social market economy created to attract investment.
-- **Local pride:** Residents are proud of their tradition of hand-weaving tais and of speaking Baikeno.
+- Oecusse had about 80,000 residents at the 2022 census, and the Atoni Pah Meto (Meto) are its dominant ethnic group.
+- **History:** The Portuguese first landed at Lifau in 1515, and Lifau became the colonial capital in 1702 until the governor's capital moved to Dili in 1769.
+- **Culture:** Traditional adat practices continue alongside Catholicism among the Atoni Pah Meto of Oecusse.
+- **Politics:** Oecusse Ambeno is a Special Administrative Region of Timor-Leste, established by Law 03/2014, and it is covered by the ZEESM TL national development programme.
+- **Local pride:** Residents take pride in Uab Meto, often called Baikeno by outsiders, which remains the native language of most people in the enclave.
 
 ## Oman
 
-- Oman is the oldest continuously independent state in the Arab world, ruled by the Al Said dynasty since 1744.
-- Oman's frankincense trade dates back millennia, and the historic sites associated with it are recognized as a UNESCO World Heritage site.
-- **History:** Sultan Qaboos bin Said, who came to power in 1970, launched a rapid modernization of Oman's infrastructure, education, and healthcare over his roughly five-decade reign.
-- **Culture:** Omani hospitality traditionally centers on serving guests kahwa (lightly spiced coffee) alongside dates, often in gatherings scented with frankincense.
-- **Politics:** Oman is an absolute monarchy in which the Sultan holds broad executive, legislative, and judicial authority, though a partly elected consultative body, the Majlis al-Shura, also exists under the 1996 Basic Statute.
-- **Local pride:** Omanis take pride in their tradition of hospitality and in their country's reputation for calm, mediating diplomacy in the region.
+- Oman has been continuously ruled by the Al Bu Said dynasty since 1744.
+- The Land of Frankincense, a group of Dhofar sites on the Incense Road including Shisr, Khor Rori, al-Balid and the Frankincense Park of Wadi Dawkah, is a UNESCO World Heritage Site, inscribed in 2000.
+- **History:** Sultan Qaboos bin Said took power in 1970 and led the modernization known as the Omani Renaissance over a nearly five-decade reign that ended with his death in 2020, after which Haitham bin Tariq succeeded him.
+- **Culture:** Omani hospitality traditionally centers on kahwa, a cardamom-flavored coffee, served with dates or Omani halwa.
+- **Politics:** Oman is an absolute monarchy in which the Sultan is both head of state and head of government and appoints the cabinet; the Council of Oman has an elected Consultative Assembly (Majlis al-Shura) and a Council of State appointed by royal decree, under a Basic Statute dated 1996.
+- **Local pride:** Omanis take pride in the khanjar, a curved dagger worn on formal occasions and shown at the centre of the national emblem, whose craft skills UNESCO inscribed in 2022.
 
 ## Pakistan
 
-- Pakistan is home to K2, the second-highest mountain in the world, and to more peaks above 7,000 meters than almost any other country.
-- Pakistan's creation in 1947 triggered one of the largest mass migrations in human history, as millions of people crossed the new India-Pakistan border during Partition.
-- **History:** East Pakistan seceded in 1971 to become Bangladesh after a war, following earlier conflicts with India over the disputed region of Kashmir shortly after independence.
+- Pakistan shares K2, the world's second-highest mountain at 8,611 meters, with China, and has 108 peaks above 7,000 meters by one trekking-guide count.
+- Pakistan's creation in 1947 triggered a mass migration of roughly 11 million people, about 6.5 million Muslims into West Pakistan and 4.7 million Hindus and Sikhs out of it to India.
+- **History:** East Pakistan seceded in 1971 as Bangladesh after a nine-month civil war, following the 1947-48 war with India over Kashmir.
 - **Culture:** Pakistan has a rich tradition of Sufi devotional music known as qawwali, performed at shrines such as Data Darbar in Lahore.
-- **Politics:** Pakistan is a federal parliamentary republic in which the military has historically played an outsized political role, having directly ruled the country through several periods of martial law.
-- **Local pride:** Pakistanis take pride in their tradition of hospitality and in a shared passion for cricket that unites people across the country.
+- **Politics:** Pakistan is a federal parliamentary Islamic republic whose governments have alternated between civilian and military rule, with martial law first imposed in 1958.
+- **Local pride:** Pakistanis take pride in their cricket team's victory at the 1992 Cricket World Cup, the country's first World Cup title.
 
 ## Palau
 
-- In 2009, Palau became the first country in the world to declare its entire exclusive economic zone a shark sanctuary.
-- Palau's Jellyfish Lake contains millions of stingless jellyfish that migrate across the lake daily, drawing researchers and visitors from around the world.
+- In 2009 Palau created the world's first shark sanctuary, banning commercial shark fishing throughout its exclusive economic zone.
+- Palau's Jellyfish Lake holds golden jellyfish that migrate across the lake each day; after a die-off beginning in 1998 linked to El Nino, the population had returned to pre-decline levels by May 2012.
 - **History:** Palau passed through Spanish, German, and Japanese administration before becoming a US-administered UN trust territory, finally achieving full independence in 1994.
-- **Culture:** Palauan society is traditionally matrilineal, with clan leadership roles and land rights passed down through the maternal line.
+- **Culture:** Palauan society follows a strict matrilineal system that shapes funerals, marriages, inheritance and traditional titles.
 - **Politics:** Palau is a presidential republic in free association with the United States under a Compact of Free Association, through which the US provides defense responsibilities and financial assistance.
-- **Local pride:** Palauans take pride in a long-standing tradition of environmental stewardship, rooted in customary conservation practices, and in an ocean-centered way of life.
+- **Local pride:** Palauans take pride in the Palau Pledge, an eco-promise established in 2017 and stamped into local and foreign passports.
 
 ## Palestine
 
-- Bethlehem and much of the West Bank's rural economy still centers on olive cultivation, with olive oil among the territory's most important agricultural products.
-- Palestine has multiple UNESCO World Heritage sites recognized under that name, including the Church of the Nativity in Bethlehem and the ancient terraced landscape of Battir.
-- **History:** In November 1988, the Palestinian National Council convened in Algiers and issued a declaration of independence for the State of Palestine.
-- **Culture:** Dabke, a synchronized line dance performed at weddings and celebrations, is a widely shared folk tradition, and traditional tatreez cross-stitch embroidery patterns often identify a wearer's home village.
-- **Politics:** The State of Palestine is recognized by roughly three-quarters of United Nations member states and holds non-member observer state status at the UN since 2012; governance is split between the Palestinian Authority, which administers parts of the West Bank, and Hamas, which has controlled Gaza's administration since 2007.
-- **Local pride:** A shared pride in preserving cultural identity and traditions, such as embroidery, cuisine, and dance, across generations despite prolonged displacement and hardship.
+- Agriculture is a mainstay of the Palestinian economy, and olives are still harvested by farmers using traditional methods.
+- Palestine has six UNESCO World Heritage Sites listed under its name, including the Church of the Nativity in Bethlehem (2012) and the Battir cultural landscape (2014).
+- **History:** On 15 November 1988 the Palestinian National Council, the PLO's legislature in exile, issued a declaration of independence for the State of Palestine.
+- **Culture:** Dabke, a Levantine line-and-circle folk dance popular among Palestinians, is commonly danced at weddings and festive events, and the art of embroidery in Palestine was inscribed on UNESCO's intangible heritage list in 2021. Until the 1940s the patterns on a woman's dress indicated her village or district.
+- **Politics:** As of September 2025, 157 of the 193 UN member states recognise the State of Palestine, which has been a non-member observer state at the UN since 2012. The Palestinian Authority exercises some governmental functions in parts of the West Bank, Hamas has governed Gaza since 2007, and UN Security Council Resolution 2803 (17 November 2025) provides for transitional administration of Gaza by a technocratic National Committee.
+- **Local pride:** Palestinians take pride in musakhan, often considered Palestine's national dish, in which chicken is roasted with onions and sumac and served over taboon bread, traditionally cooked during the olive harvest.
 
 ## Panama
 
-- Panama uses the US dollar for paper currency alongside its own currency, the balboa, which circulates almost entirely as coins.
-- At its narrowest point, the Isthmus of Panama is only about 50 kilometers (30 miles) wide, making it one of the narrowest land bridges separating two oceans anywhere in the world.
+- Panama uses the US dollar for all paper currency alongside its own currency, the balboa, which circulates only as coins.
+- The Panama Canal cuts across the narrowest point of the Isthmus of Panama, the strip of land between the Caribbean Sea and the Pacific Ocean.
 - **History:** Full control of the interoceanic canal zone passed from the United States to Panama on December 31, 1999, under the Torrijos-Carter Treaties signed in 1977.
-- **Culture:** The pollera, an elaborately embroidered traditional dress, remains a centerpiece of Panamanian festivals and is considered one of the most intricate folk costumes in Latin America.
-- **Politics:** Panama has a unicameral National Assembly and a president elected to a single five-year term with no immediate re-election permitted.
-- **Local pride:** A shared sense of pride in being a global crossroads that connects two oceans and hemispheres, seen as proof of the country's own engineering and administrative capability.
+- **Culture:** The pollera, a handmade dress with lacework and embroidery, is displayed at the Desfile de las Mil Polleras in Las Tablas each January and is recognized as one of the most elaborate traditional garments in the Americas.
+- **Politics:** Panama has a unicameral 71-member National Assembly, and its president serves a five-year term and may not immediately run for re-election.
+- **Local pride:** Panamanians take pride in their national football team, which reached its first World Cup in 2018 and qualified again for 2026.
 
 ## Papua New Guinea
 
-- Papua New Guinea is one of the most linguistically diverse places on Earth, with more than 840 living languages recorded within its borders.
+- Papua New Guinea is one of the most linguistically diverse places on Earth, with about 840 living languages.
 - Customary land tenure systems, rather than formal state title, govern roughly 97 percent of the country's land.
 - **History:** Papua New Guinea gained independence from Australia on September 16, 1975.
-- **Culture:** Large sing-sing gatherings, such as the annual Mount Hagen festival, bring together hundreds of tribal groups displaying distinct feathered headdresses, body paint, and dance styles.
-- **Politics:** Papua New Guinea is a parliamentary democracy within the Commonwealth, with the British monarch as head of state represented locally by a Governor-General, and a unicameral National Parliament elected through limited preferential voting.
-- **Local pride:** A shared pride in strong clan and tribal identity, communal land ties, and the country's extraordinary cultural and linguistic diversity.
+- **Culture:** Sing-sings, in which participants paint themselves and dress in feathers, pearls and animal skins to represent birds, trees or mountain spirits, have been competitive events since 1953, with contests in Port Moresby, Mt. Hagen and Goroka.
+- **Politics:** Papua New Guinea is a parliamentary democracy and Commonwealth realm, with King Charles III as head of state represented by a Governor-General, and a unicameral National Parliament elected through the limited preferential vote.
+- **Local pride:** Papua New Guineans take pride in rugby league, widely regarded as the national sport, followed through the Kumuls national team and the PNG Chiefs, who are scheduled to join the NRL in 2028 as of August 2026.
 
 ## Paraguay
 
 - Paraguay is one of only two landlocked countries in South America, alongside Bolivia.
-- Guaraní, an indigenous language, is co-official with Spanish and is spoken by a majority of the population regardless of ethnic background, an unusual pattern in Latin America.
-- **History:** The War of the Triple Alliance (1864-1870) against Argentina, Brazil, and Uruguay devastated Paraguay's population and remains among the deadliest wars per capita in modern history.
+- Guaraní, an indigenous language, is co-official with Spanish, and more than 90% of Paraguayans speak some dialect of it.
+- **History:** The War of the Triple Alliance (1864-1870), fought against Argentina, Brazil, and Uruguay, is described as the deadliest inter-state war in Latin American history and killed a large share of Paraguay's pre-war population.
 - **Culture:** The harp is considered the national instrument, central to traditional polca paraguaya and guarania musical styles.
 - **Politics:** Paraguay has a bicameral Congress and a president limited to a single five-year term with no re-election, a restriction adopted after the long Stroessner dictatorship ended in 1989.
-- **Local pride:** A shared pride in the daily ritual of drinking tereré, an icy yerba mate infusion shared among friends and family, and in the country's practical, self-reliant resilience following historical hardship.
+- **Local pride:** A shared pride in tereré, the cold yerba mate infusion with medicinal herbs (pohã ñana) passed around in a guampa among friends and family, whose practices UNESCO inscribed on its intangible heritage list in 2020.
 
 ## Peru
 
-- Peru is the original domestication site of the potato, and it is home to more than 3,000 documented varieties.
-- Peru contains an unusually wide range of ecosystems within one country, spanning coastal desert, high Andean plateau, and Amazon rainforest.
+- Potatoes were first domesticated in the Andes of southern Peru and northwestern Bolivia, and around 3,000 varieties are grown in Peru.
+- Huascarán, Peru's highest mountain at about 6,768 m, is the highest peak in the tropics.
 - **History:** In 1532, Francisco Pizarro's forces captured the Inca emperor Atahualpa at Cajamarca, an event that precipitated the collapse of the Inca Empire.
-- **Culture:** Peruvian cuisine, especially ceviche, has earned international acclaim, and Lima is widely regarded as one of Latin America's leading culinary capitals.
-- **Politics:** Peru has experienced marked political instability in recent years, with six different presidents holding office between 2018 and 2023 amid recurring conflict between the executive and its unicameral Congress.
-- **Local pride:** A shared pride in Peru's Andean roots and the blending of Indigenous, Spanish, African, and Asian influences into a single national identity, along with strong family and community bonds.
+- **Culture:** Lima is considered a global culinary capital, and in December 2023 UNESCO recognised the preparation and consumption of ceviche as intangible cultural heritage.
+- **Politics:** Peru has had recurring conflict between the executive and Congress since late 2016; Congress removed Dina Boluarte in October 2025 and her successor José Jerí in February 2026, and Keiko Fujimori is listed as president after the 2026 runoff (as of the latest Wikipedia text).
+- **Local pride:** A shared pride in pisco, the grape brandy and base of the pisco sour, which Peru has protected under a denomination of origin since 1991.
 
 ## Philippines
 
 - The Philippines is an archipelago made up of more than 7,600 islands.
 - Jeepneys, originally built from surplus US military jeeps left after World War II, became the country's iconic, colorfully decorated form of public transport.
 - **History:** Philippine independence from Spain was declared on June 12, 1898, and independence was formally recognized by the United States on July 4, 1946; June 12 is now the official Independence Day.
-- **Culture:** Karaoke is an enormously popular pastime nationwide, and nearly every town holds an annual fiesta honoring its patron saint with food, music, and processions.
+- **Culture:** Karaoke is popular in the Philippines, and town fiestas honor patron saints with food, music, and processions.
 - **Politics:** The Philippines has a presidential system with a single six-year term limit for the president and no possibility of re-election, alongside a bicameral Congress.
-- **Local pride:** A shared pride in strong family bonds and the bayanihan spirit of communal cooperation, especially visible in recovery after natural disasters.
+- **Local pride:** A shared pride in bayanihan, the communal spirit of neighbours working together, traditionally shown by volunteers carrying a family's whole house to a new site on bamboo poles.
 
 ## Pitcairn Islands
 
-- Pitcairn Island is the only inhabited island in the Pitcairn group, and it has a population of roughly 40 people.
-- The territory's surrounding waters were designated a large marine protected area in 2016, among the largest in the world.
+- Pitcairn Island is the only inhabited island in the Pitcairn group, and it has a population of about 35 people.
+- The UK announced a marine reserve covering Pitcairn's whole exclusive economic zone (about 830,000 square kilometres) in March 2015, at the time the world's largest contiguous marine reserve.
 - **History:** In 1790 the Bounty mutineers and a group of Tahitians settled on Pitcairn after burning their ship.
 - **Culture:** Pitkern, the local language, blends 18th-century English with Tahitian, and the community is known for its honey, which is exported.
 - **Politics:** Pitcairn is a British Overseas Territory, governed by a Governor who is the British High Commissioner in New Zealand, with an elected Island Council and a Mayor.
-- **Local pride:** The community takes pride in its self-reliance and close-knit way of life, including its honey production.
+- **Local pride:** Islanders mark Bounty Day every 23 January, commemorating the 1790 burning of the Bounty, by burning model replicas of the ship and holding a fish fry.
 
 ## Poland
 
 - Poland vanished from the political map for 123 years, from 1795 to 1918, after being partitioned among Russia, Prussia, and Austria.
 - Poland's Białowieża Forest contains some of the last remaining fragments of the primeval woodland that once covered much of the European lowlands.
-- **History:** The Solidarity trade union movement, founded at the Gdańsk shipyard in 1980, led to Poland's first partially free postwar elections in 1989, helping trigger the collapse of communist rule across Eastern Europe.
-- **Culture:** Pierogi dumplings are a national culinary staple, and the traditional Wigilia Christmas Eve supper features twelve meatless dishes.
+- **History:** The Solidarity trade union, which emerged at the Gdańsk shipyard in 1980, led the opposition to the semi-free elections of June 1989, an outcome that helped trigger the Revolutions of 1989 across Central and Eastern Europe.
+- **Culture:** Pierogi are a traditional Polish dish of considerable culinary significance, and the Wigilia Christmas Eve supper is meatless and traditionally has twelve dishes.
 - **Politics:** Poland is a parliamentary republic with a bicameral parliament, the Sejm and Senate, and a directly elected president who shares executive authority with the prime minister.
-- **Local pride:** A shared pride in national resilience and perseverance through repeated historical hardship, reinforced by strong community and family traditions.
+- **Local pride:** A shared pride in the national men's volleyball team, world champions in 2014 (on home soil) and 2018.
 
 ## Portugal
 
-- Portugal is the world's largest producer and exporter of cork, harvested from its extensive cork oak forests.
-- The border between Portugal and Spain, fixed by the 1297 Treaty of Alcañices, is considered the oldest continuously unchanged national border in Europe.
-- **History:** The largely bloodless Carnation Revolution of April 1974 ended decades of authoritarian Estado Novo rule and opened the way to democratic government.
-- **Culture:** Fado, a melancholic musical genre often built around the untranslatable notion of saudade, is recognized by UNESCO as intangible cultural heritage.
+- Portugal accounts for about half of the world's cork production, harvested from its cork oak montado forests.
+- Portugal's border with Spain has stayed largely unchanged since the 1297 Treaty of Alcañices.
+- **History:** The Carnation Revolution of 25 April 1974, in which almost no shots were fired, overthrew the Estado Novo regime and began Portugal's transition to democracy.
+- **Culture:** Fado, an urban song form that emerged in Lisbon in the 1820s and is linked to the notion of saudade, was added to UNESCO's intangible cultural heritage lists in 2011.
 - **Politics:** Portugal is a semi-presidential republic with a directly elected president and a prime minister who runs day-to-day government, accountable to the unicameral Assembly of the Republic.
-- **Local pride:** A shared pride in the country's seafaring and exploration heritage, paired with a strong sense of hospitality and quiet endurance through hardship.
+- **Local pride:** A shared pride in bacalhau, the dried salted cod, with more than 365 ways to cook it by popular count and a traditional place at Christmas Eve dinner.
 
 ## Puerto Rico
 
-- Puerto Rico's Arecibo Observatory telescope was among the largest single-dish radio telescopes in the world until its collapse in 2020.
-- The coquí, a tiny frog whose call gives it its name, is a beloved symbol of the island.
-- **History:** Spain ceded Puerto Rico to the United States in the 1898 Treaty of Paris after the Spanish-American War.
-- **Culture:** Bomba and plena are traditional Afro-Puerto Rican music and dance forms, and the island's cuisine features mofongo, made from mashed fried plantain.
+- Puerto Rico's Arecibo Observatory was the world's largest single-aperture telescope from 1963 until 2016 and collapsed on 1 December 2020.
+- The coquí, a frog named for its call, is a symbol of Puerto Rican pride.
+- **History:** The United States acquired Puerto Rico from Spain through the Treaty of Paris of 1898, with the cession dated 10 December 1898.
+- **Culture:** Bomba, developed by enslaved Africans and their descendants on sugar plantations from the 17th century, is described as the island's oldest musical tradition, and mofongo is a Puerto Rican dish of mashed plantain.
 - **Politics:** Puerto Rico is an unincorporated territory of the United States with commonwealth status since 1952, an elected governor and legislature, and a non-voting Resident Commissioner in Congress, and residents are US citizens but do not vote in presidential elections; its political status has been the subject of several non-binding plebiscites.
-- **Local pride:** Puerto Ricans are proud of their musical heritage and the strong shared identity expressed in food, music and festivals.
+- **Local pride:** Puerto Ricans take pride in fielding their own national teams, notably the basketball side that beat the United States 92-73 at the 2004 Athens Olympics.
 
 ## Qatar
 
-- Qatar has one of the highest GDP-per-capita figures in the world, driven largely by its position holding the world's third-largest natural gas reserves.
+- Qatar has the fourth-highest GDP (PPP) per capita in the world, backed by the world's third-largest natural gas reserves.
 - Qatar hosted the 2022 FIFA World Cup, the first ever held in the Middle East and the first shifted to November-December to avoid summer heat.
 - **History:** Qatar became fully independent from British protection on September 3, 1971.
-- **Culture:** Falconry remains a prestigious traditional practice tied to Bedouin heritage, and formal Qatari dress includes the white thobe for men, secured with the agal-bound ghutra headscarf.
-- **Politics:** Qatar is an absolute monarchy led by the Emir from the Al Thani family; it has a partly elected Shura Council with limited legislative powers, and no political parties operate.
-- **Local pride:** A shared pride in achieving rapid national development within a single generation, combined with enduring Bedouin traditions of hospitality and generosity.
+- **Culture:** Bedouin heritage in Qatar includes hunting with falcons, and men's dress is the white thawb with a ghutra headdress held in place by the black agal.
+- **Politics:** Qatar is officially a constitutional hereditary monarchy under the Al Thani family, often described as an absolute monarchy, in which the Emir holds executive authority; the 45-member Shura Council is advisory and fully appointed since a November 2024 referendum ended elections, and political parties are banned (as of the latest Wikipedia text).
+- **Local pride:** A shared pride in Al Jazeera, the Doha-based news network founded on 1 November 1996 and widely relied on for news across the Arab world.
 
 ## Réunion
 
 - Réunion holds the world record for rainfall in 24 hours, with 1,825 mm recorded at Foc-Foc during Cyclone Denise in January 1966.
-- The island is home to Piton de la Fournaise, one of the most active volcanoes in the world, which has erupted many times in recent decades.
-- **History:** Réunion was uninhabited when French settlers arrived in the 17th century, and slavery was abolished there on 20 December 1848, the same year the island took the name La Réunion for good.
-- **Culture:** Maloya, a music and dance tradition born among enslaved Africans and Malagasy people on the island's sugar plantations, was inscribed on UNESCO's list of intangible cultural heritage in 2009.
+- Réunion is home to Piton de la Fournaise, one of Earth's most active volcanoes.
+- **History:** Réunion was uninhabited when French settlers arrived in the 17th century, and slavery was abolished there on 20 December 1848.
+- **Culture:** Maloya, a music and dance tradition with origins among African and Malagasy slaves and Indian indentured workers on the island, was inscribed on UNESCO's list of intangible cultural heritage in 2009.
 - **Politics:** Réunion has been an overseas department and region of France since 1946, and is an outermost region of the European Union that uses the euro.
-- **Local pride:** Residents take pride in a Creole way of life in which communities of African, Indian, Chinese and European origin, and several faiths, live side by side and share one cuisine and one language.
+- **Local pride:** Residents take pride in the Grand Raid, the Diagonale des Fous ultra-trail held each October, of about 166 km with roughly 10,000 m of climbing.
 
 ## Rodrigues
 
 - Rodrigues lies roughly 560 km east of Mauritius and covers only about 108 square kilometres.
 - The island was once home to the Rodrigues solitaire, a large flightless relative of the dodo that went extinct in the 18th century.
-- **History:** In 1691 a group of French Huguenot refugees led by François Leguat was marooned on Rodrigues, becoming its first known settlers and leaving a famous account of the island's wildlife.
-- **Culture:** Islanders speak Rodriguan Creole, a variety of Creole related to Mauritian Creole, and the island has its own sega tambour music tradition.
+- **History:** In 1691 François Leguat and seven companions, Protestant refugees, were marooned on the uninhabited island of Rodrigues, where they settled and later published an account of its wildlife.
+- **Culture:** Rodriguan Creole is the main language of the island, and sega tambour is its traditional music.
 - **Politics:** Rodrigues became an autonomous region of the Republic of Mauritius in 2002, governed by a Rodrigues Regional Assembly and an executive led by a Chief Commissioner.
-- **Local pride:** Rodriguans take pride in their self-reliant, close-knit rural way of life built on small-scale fishing, octopus drying and farming of produce such as chillies and limes.
+- **Local pride:** Rodriguans take pride in octopus, served in dishes such as octopus curry that the island counts among its national dishes, and in locally grown chilli.
 
 ## Romania
 
-- Romania hosts the largest brown bear population in Europe outside of Russia, concentrated across the Carpathian Mountains.
-- Romanian is a Romance language, forming a linguistic island surrounded by Slavic-speaking neighbors, tracing back to Roman colonization of ancient Dacia.
+- Romania has an estimated 5,000 to 6,000 brown bears, one of the largest concentrations in Europe.
+- Romanian is an Eastern Romance language descended from the Latin of Roman provinces in southeastern Europe, with vocabulary shaped by contact with Slavic languages, Hungarian, Greek, German and Turkish.
 - **History:** A popular uprising in December 1989 overthrew longtime dictator Nicolae Ceaușescu, ending decades of communist rule in a matter of days.
-- **Culture:** Painted monasteries in the Bucovina region feature elaborate exterior frescoes, and Orthodox Easter is marked by widely observed fasting and midnight candlelit services.
+- **Culture:** The painted churches of northern Moldavia in Suceava County, built from the late 15th to late 16th century, are covered in exterior fresco cycles, and Easter tables traditionally feature lamb dishes such as borș de miel and drob alongside pască.
 - **Politics:** Romania is a semi-presidential republic with a bicameral Parliament and a president elected for up to two five-year terms, sharing executive power with a prime minister.
-- **Local pride:** A shared pride in rich folk craftsmanship, rural traditions, and warm hospitality, alongside a national spirit of resilience through generations of hardship.
+- **Local pride:** Romanians take pride in living craft traditions such as Horezu ceramics, inscribed on UNESCO's Intangible Cultural Heritage list in 2012.
 
 ## Rotuma
 
-- Rotuma is a small volcanic island of about 43 square kilometres lying several hundred kilometres north of Fiji's main islands.
-- The Rotuman language is distinct from Fijian and has features that link it to Polynesian languages, and many Rotumans now live on mainland Fiji rather than on the island itself.
+- Rotuma Island covers about 47 square kilometres and lies about 646 kilometres north of Suva, Fiji's capital.
+- About 10,000 Rotumans live on mainland Fijian islands, compared with 1,583 residents counted on Rotuma in the 2017 census.
 - **History:** Rotuma's chiefs ceded the island to Britain on 13 May 1881, and that date is now celebrated as Rotuma Day.
-- **Culture:** Rotumans weave fine mats called apei, which are exchanged and displayed at weddings, funerals and other ceremonies.
+- **Culture:** Rotuman society is highly communal, with large-scale communal projects called kato'aga and shared property.
 - **Politics:** Rotuma is a dependency of Fiji with its own Rotuma Act, and it is divided into districts, each with a district chief, with local matters overseen by the Rotuma Island Council.
-- **Local pride:** Rotumans take pride in keeping their own language, customs and communal ceremonies alive, including the gift exchange of woven mats, even though many of them live far from the island.
+- **Local pride:** Rotumans take pride in the Rotuman language, a distinct member of the West Fijian-Rotuman branch with significant Polynesian borrowing, which they keep alive on the island and among the Rotuman community elsewhere in Fiji.
 
 ## Russia
 
-- Russia spans eleven time zones, more than any other country on Earth.
+- Russia spans eleven time zones, though France has more, 12, when its overseas territories are counted.
 - Siberia's Lake Baikal is the world's deepest and oldest freshwater lake, holding roughly one-fifth of the planet's unfrozen fresh water.
-- **History:** The Soviet Union formally dissolved on December 26, 1991, ending nearly seven decades of communist rule and establishing the Russian Federation as its principal successor state.
+- **History:** The Soviet Union was formally dissolved on 26 December 1991, with the Russian Federation recognised as its successor state.
 - **Culture:** Russian ballet companies such as the Bolshoi and Mariinsky are internationally renowned, and the tradition of the banya, a steam bathhouse often paired with birch-branch whisking, remains widely practiced.
 - **Politics:** Russia is a federal semi-presidential republic with a bicameral Federal Assembly; constitutional amendments adopted in 2020 reset presidential term counts, allowing for additional terms beyond the previous limit.
-- **Local pride:** A shared pride in a rich literary, musical, and artistic heritage, alongside a strong cultural value placed on endurance through hardship.
+- **Local pride:** Russians take pride in their space-flight legacy, including Sputnik 1 in 1957 and the first human spaceflight in 1961, marked each 12 April as Cosmonautics Day.
 
 ## Rwanda
 
 - Rwanda is nicknamed the 'Land of a Thousand Hills' because of its mountainous, densely terraced terrain.
 - On the last Saturday of each month, Rwanda holds Umuganda, a nationwide mandatory community service day devoted to public cleaning and infrastructure work.
-- **History:** In 1994, a genocide against the Tutsi population killed an estimated 800,000 people over roughly 100 days.
-- **Culture:** The traditional Intore dance, marked by energetic warrior-style choreography and spear-and-shield performances, is featured at ceremonies and national celebrations.
-- **Politics:** Rwanda's constitution mandates a minimum 30 percent quota for women in decision-making bodies, and its parliament has one of the highest shares of women representatives in the world.
-- **Local pride:** A shared pride in collective self-reliance and community-driven cooperation, and in the country's ongoing progress toward national unity and reconciliation.
+- **History:** In 1994, a genocide against the Tutsi lasted about 100 days, from 7 April to 19 July; scholarly estimates put the Tutsi dead at roughly 500,000 to 660,000, while the Rwandan government counts over 1 million deaths.
+- **Culture:** The Intore is Rwanda's most famous traditional dance, a choreographed routine combining a women's ballet, a men's dance of heroes and drumming, performed at ceremonies and festivals.
+- **Politics:** Rwanda is a semi-presidential republic whose 80-seat Chamber of Deputies reserves 24 seats for women, and women held 45 of the 80 seats in the figures reported by Wikipedia.
+- **Local pride:** Rwandans take pride in Kwita Izina, the annual ceremony held since 2005 in which newborn mountain gorillas are given names, adapted from a traditional baby-naming custom.
 
 ## Saba
 
 - Saba covers only about 13 square kilometres and is the smallest of the Netherlands' Caribbean special municipalities.
 - The island's airport has one of the shortest commercial runways in the world, at roughly 400 metres.
-- **History:** The Dutch first settled Saba in 1640, with the first colonists arriving from neighbouring Sint Eustatius.
-- **Culture:** Saba is known for Saba lace, a drawn-thread needlework tradition also called Spanish work, which islanders have made since the 19th century.
+- **History:** In the 1640s the Dutch governor of Sint Eustatius sent Dutch families to colonize Saba, after shipwrecked Englishmen had landed there in 1632.
+- **Culture:** Saba is known for Saba lace, also called Spanish work, a needlework tradition introduced by a Venezuelan nun in the late 19th century.
 - **Politics:** Since 10 October 2010 Saba has been a special municipality of the Netherlands, with an elected Island Council and an Island Governor appointed by the Dutch Crown.
-- **Local pride:** Sabans take pride in their close-knit, safe community where neighbours know each other and a long craft tradition of lacework is passed down.
+- **Local pride:** Sabans take pride in Saba Day, the island's annual holiday, marked with parades, a concert at the sports field in The Bottom and a wahoo fishing tournament.
 
 ## Saint Barthélemy
 
 - Saint Barthélemy covers only about 25 square kilometres and its capital, Gustavia, was named after a Swedish king.
 - Its airport's very short runway ends at a beach, so only small aircraft flown by specially certified pilots can land there.
 - **History:** Sweden acquired Saint Barthélemy from France in 1784 in exchange for trading rights in Gothenburg, and returned it to France in 1878 after a vote of the islanders.
-- **Culture:** Early women settlers of Norman and Breton descent wore the quichenotte, a starched white bonnet that became a traditional symbol of the island.
+- **Culture:** The kichnotte, a starched white bonnet, is part of the island's traditional women's costume and is now seen only among older women.
 - **Politics:** Saint Barthélemy became a separate French overseas collectivity in 2007, having previously been part of Guadeloupe, and is governed by a Territorial Council and its president.
-- **Local pride:** Residents take pride in a small, tight-knit island community that has preserved its French Creole traditions and welcoming hospitality.
+- **Local pride:** Residents take pride in Les Voiles de Saint-Barth, the island's annual April sailing regatta.
 
 ## Saint Helena, Ascension and Tristan da Cunha
 
-- Tristan da Cunha is widely described as the most remote inhabited island group in the world, about 2,400 km from Saint Helena and nearly 2,800 km from South Africa.
-- Saint Helena had no airport until 2016, and scheduled commercial flights began in 2017, ending its long reliance on the mail ship for access.
+- Tristan da Cunha is described as the most remote inhabited place in the world, reachable only by ship on a six-day journey from Cape Town.
+- Saint Helena Airport received its first scheduled commercial flight on 14 October 2017.
 - **History:** The whole population of Tristan da Cunha was evacuated to Britain after a volcanic eruption in 1961, and most chose to return in 1963.
 - **Culture:** People from Saint Helena call themselves Saints, and fishcakes made from local tuna or other fish are a staple of island cooking.
 - **Politics:** The territory is a British Overseas Territory whose three parts share a Governor, with Saint Helena having a Legislative Council under the 2009 constitution and Ascension and Tristan da Cunha having their own island councils.
-- **Local pride:** Residents take pride in their warm, self-reliant community spirit, in which neighbours look after one another across vast stretches of open ocean.
+- **Local pride:** Saint Helenians take pride in St Helena coffee, which the island exports as one of the most expensive coffees in the world.
 
 ## Saint Kitts and Nevis
 
-- Saint Kitts and Nevis is the smallest sovereign state in the Americas by both land area and population.
-- The country launched the world's first Citizenship by Investment program in 1984, pioneering what is now known as 'economic citizenship.'
-- **History:** Saint Kitts, settled by both the British and French in the 1620s, is often called the 'mother colony of the West Indies' as the first Caribbean island colonized by either power.
-- **Culture:** The Sugar Mas carnival, held over the Christmas and New Year period, celebrates emancipation through street masquerade, calypso, and traditional costumed troupes.
-- **Politics:** Saint Kitts and Nevis is a federal constitutional monarchy, a rare two-island federation in which Nevis maintains its own island assembly, premier, and a constitutional right to hold a secession referendum.
-- **Local pride:** A shared pride in the resourcefulness of a very small nation, and in having transformed a sugar-growing past into a distinct modern island identity.
+- Saint Kitts and Nevis is the smallest sovereign state in the Western Hemisphere in both area and population.
+- Its citizenship by investment programme, established in 1984, is described as the oldest prevailing economic citizenship programme of its kind in the world.
+- **History:** Saint Kitts hosted the first British and French colonies in the Caribbean in the mid-1620s, with the English settling in 1623 and the French in 1625, and has been titled 'The Mother Colony of the West Indies.'
+- **Culture:** Carnival on Saint Kitts runs from mid-December to early January, with masquerade (mas) traditions that developed over three centuries from African and European roots.
+- **Politics:** Saint Kitts and Nevis is a federal parliamentary constitutional monarchy in which Nevis has its own island assembly and premier and a constitutionally protected right to secede if a referendum gets a two-thirds majority.
+- **Local pride:** Kittitians and Nevisians take pride in the St. Kitts Music Festival, held every June since 1996 and originally called the Shak Shak Festival.
 
 ## Saint Lucia
 
-- Saint Lucia has the highest number of Nobel laureates per capita of any country in the world, having produced winners in two entirely different fields from a population of under 200,000.
-- Control of Saint Lucia changed between Britain and France fourteen times before it became permanently British in 1814, more than any other Caribbean island.
+- Saint Lucia has the highest number of Nobel laureates per capita of any sovereign country, having produced winners in two entirely different fields (economics and literature) from a population of under 200,000.
+- England and France fought fourteen times over Saint Lucia before it was ceded to Britain for the final time in 1814.
 - **History:** After more than a century of contested colonial rule, Saint Lucia achieved full independence from Britain on February 22, 1979.
-- **Culture:** Two rival flower festivals, La Rose and La Marguerite, rooted in historic friendly societies, are celebrated annually, and French Creole Kwéyòl remains widely spoken alongside official English.
+- **Culture:** Two rival flower festivals, La Rose (30 August) and La Marguerite (17 October), rooted in mutual-support societies dating from slavery, are celebrated annually, and French Creole Kwéyòl remains widely spoken alongside official English.
 - **Politics:** Saint Lucia is a parliamentary democracy and constitutional monarchy within the Commonwealth, with a Governor-General representing the monarch and a bicameral Parliament.
-- **Local pride:** A shared pride in strong community bonds and warm hospitality, and in a way of life closely tied to farming, fishing, and the surrounding sea.
+- **Local pride:** Saint Lucians take pride in the annual Saint Lucia Jazz and Arts Festival, begun in 1992.
 
 ## Saint Martin
 
 - The French side of the island covers about 53 square kilometres of the island's roughly 87 square kilometres, and is administered from Marigot.
 - Hurricane Irma struck the island as a Category 5 storm in September 2017, causing widespread destruction.
 - **History:** The Treaty of Concordia of 1648 divided the island between France and the Netherlands, an arrangement that has lasted for centuries.
-- **Culture:** Grand Case is known for its lolos, informal open-air restaurants serving grilled meats and Creole dishes.
+- **Culture:** Grand Case is known for its many restaurants and beach bars along a mile-long main street.
 - **Politics:** Saint Martin has been a French overseas collectivity since 2007, previously part of Guadeloupe, and is governed by a Territorial Council and uses the euro.
-- **Local pride:** Residents take pride in their French Creole food traditions and the shared dining culture of the lolos.
+- **Local pride:** Residents take pride in conch broth served with dumplings, the island's national dish.
 
 ## Saint Pierre and Miquelon
 
-- Saint Pierre and Miquelon lies just off the coast of Newfoundland and is the only remaining part of New France, the former French colonial empire in North America.
-- It is the only territory in North America that uses the euro, and its time zone is three hours behind UTC.
-- **History:** On 24 December 1941 a Free French naval force seized the islands from the Vichy-aligned administration, a move that caused a diplomatic row with the United States.
-- **Culture:** The islands hold a Basque festival each summer, reflecting a strong Basque heritage and a tradition of the Basque ball game pelota.
+- A 1992 arbitration ruling settled the maritime boundary dispute with Canada by giving the islands an exclusive economic zone of 12,348 square kilometres, about a quarter of what France had sought, and the economy has declined since 1992 amid depleted fish stocks and a Canadian ban on all cod fishing.
+- The islands use the euro as their official currency, though Canadian dollars are widely accepted, and keep clocks at UTC-3 (UTC-2 in summer daylight saving time).
+- **History:** On 24 December 1941 Free French forces under Admiral Muselier seized the islands from Vichy France, an action that became an international incident involving the United States and Canada.
+- **Culture:** Every summer the islands hold a Basque Festival featuring Basque pelota, stone heaving and lumberjack skills.
 - **Politics:** Saint Pierre and Miquelon has been a French overseas collectivity since 2003, governed by a Territorial Council, and sends one deputy and one senator to the French Parliament.
-- **Local pride:** Islanders take pride in their French seafaring and cod-fishing heritage and in being a distinct piece of France in North America.
+- **Local pride:** Islanders take pride in the Doris, their traditional wooden fishing boat, whose carpentry was recognised in 2024 as intangible cultural heritage by the French Ministry of Culture.
 
 ## Saint Vincent and the Grenadines
 
-- Saint Vincent and the Grenadines is made up of 32 islands and cays, only a handful of which are inhabited.
-- The Garifuna people, descended from West African and Kalinago intermarriage, originated on Saint Vincent before being forcibly exiled by the British to Central America in 1797.
+- Saint Vincent and the Grenadines is made up of 32 islands and cays, only some of them inhabited.
+- The Garifuna people, of mixed African and Amerindian (Kalinago) ancestry, originated on Saint Vincent before the British deported many of them in 1797 to Roatán, off Honduras, from where they spread along the Central American coast.
 - **History:** The eruption of La Soufrière volcano in 1979 forced mass evacuations, and the volcano erupted explosively again in 2021.
-- **Culture:** The Nine Mornings festival, featuring pre-dawn street celebrations in the run-up to Christmas, along with strong calypso and soca music traditions, are central to Vincentian cultural life.
-- **Politics:** Saint Vincent and the Grenadines is a parliamentary constitutional monarchy within the Commonwealth, and voters rejected a 2009 referendum proposal to replace the monarchy with a republic.
-- **Local pride:** A shared pride in resilience through natural hazards like hurricanes, and in a strong seafaring and fishing way of life spanning the country's many islands.
+- **Culture:** Calypso, soca, steelpan, reggae and big drum are among the music popular in Saint Vincent and the Grenadines.
+- **Politics:** Saint Vincent and the Grenadines is a parliamentary constitutional monarchy within the Commonwealth, and a 2009 referendum on a republican constitution was rejected, falling well short of the required two-thirds majority.
+- **Local pride:** Vincentians take pride in their annual Carnival, whose Carnival Monday and Carnival Tuesday fall on the first Monday and Tuesday of July and are public holidays.
 
 ## Samoa
 
-- In December 2011, Samoa skipped the calendar date December 30 entirely, moving from the east side of the International Date Line to the west side to align its work week with Australia and New Zealand instead of the United States.
-- Samoa switched from right-hand to left-hand traffic in 2009, one of the few countries in modern times to change which side of the road it drives on.
-- **History:** Samoa was administered by New Zealand under a League of Nations mandate after Germany's colonial rule ended with World War I, and in 1962 it became the first Pacific Island nation to regain independence in the 20th century.
-- **Culture:** The Samoan tatau tradition, applied with traditional hand-tapping tools rather than a machine, remains a significant rite of passage, producing the male pe'a and female malu body tattoos.
-- **Politics:** Samoa is a parliamentary republic whose legislature, the Fono, historically required most candidates to hold a matai (chiefly) title, a system retained for most constituencies even after universal suffrage was introduced in 1990.
-- **Local pride:** Samoans take deep pride in fa'a Samoa, 'the Samoan Way' — a communal social system built around extended family, respect for chiefly titleholders, and village-level obligations.
+- In December 2011, Samoa skipped 30 December entirely, moving west of the International Date Line to improve business links with New Zealand, Australia and Asia.
+- Samoa switched from right-hand to left-hand traffic on 7 September 2009.
+- **History:** Samoa was administered by New Zealand under a League of Nations mandate after Germany's colonial rule ended with World War I, and on 1 January 1962 it became the first small-island country in the Pacific to become independent.
+- **Culture:** The Samoan tatau tradition, carried out by master tattooists with handmade tools, remains a significant practice, producing the male pe'a and female malu body tattoos.
+- **Politics:** Samoa is a parliamentary republic whose 51-member Fono has 49 seats open only to matai (chiefly) title-holders, plus two seats elected by non-Samoans on a separate roll; universal suffrage was introduced in 1990.
+- **Local pride:** Samoans take deep pride in fa'a Samoa, 'the Samoan way', a traditional way of life that has kept its customs, social and political systems and language going for about 3,000 years despite European influence.
 
 ## San Marino
 
-- San Marino claims to be the world's oldest surviving sovereign state and constitutional republic, tracing its founding to 301 AD.
-- San Marino is entirely landlocked within Italy, making it one of only a few countries in the world completely surrounded by a single neighboring state.
-- **History:** San Marino has never been conquered by a foreign power and preserved its independence through Italian unification in the 19th century, reportedly sheltering Giuseppe Garibaldi as a fugitive in 1849.
-- **Culture:** San Marino's civic calendar centers on the Palio delle Balestre, a historic crossbow competition held each September in which teams compete in traditional medieval dress.
-- **Politics:** San Marino's head of state is a duumvirate of two Captains Regent (Capitani Reggenti), elected jointly by the Grand and General Council for terms of just six months, a structure unique among modern states.
-- **Local pride:** Sammarinese take pride in belonging to one of the world's smallest and most tightly knit republics, with a strong tradition of civic participation and community identity that endures despite being entirely surrounded by Italy.
+- San Marino claims to be the world's oldest surviving republic, tracing its founding to 301 AD.
+- San Marino is a landlocked enclave entirely surrounded by Italy.
+- **History:** San Marino sheltered Giuseppe Garibaldi and about 250 followers in 1849, and was occupied by Cardinal Giulio Alberoni in 1739 until Pope Clement XII restored its independence in 1740.
+- **Culture:** Each 3 September San Marino celebrates the Feast of Saint Marinus and the Republic, marking its traditional origin in 301, and its Crossbow Corps has given crossbow demonstrations at festivals since 1295.
+- **Politics:** San Marino's heads of state are two Captains Regent (Capitani Reggenti), elected every six months and invested on 1 April and 1 October.
+- **Local pride:** Sammarinesi take pride in their early abolition of the death penalty: formally abolished in 1848, reintroduced in 1853, and definitively removed for all crimes by the 1865 criminal code.
 
 ## Sao Tome and Principe
 
-- Sao Tome and Principe, one of Africa's smallest countries by land area, was uninhabited until Portuguese explorers settled it in the late 15th century.
+- Sao Tome and Principe, the second-smallest African sovereign state, was uninhabited when the Portuguese arrived in 1470.
 - The country was once nicknamed the 'Chocolate Islands' after becoming the world's largest producer of cocoa in the early 20th century, and cocoa remains central to its economy today.
-- **History:** Sao Tome and Principe gained independence from Portugal in 1975 after centuries as a major slave-trading way station and plantation (roça) colony.
-- **Culture:** The Angolares, descendants of shipwrecked or escaped enslaved people, maintain distinct fishing traditions along the southern coast of Sao Tome island.
-- **Politics:** Sao Tome and Principe is a semi-presidential republic with a directly elected president and a prime minister drawn from the parliamentary majority, and the island of Principe holds its own autonomous regional government.
-- **Local pride:** Residents take pride in their relaxed island way of life and the smallholder farming traditions passed down through generations of cocoa and coffee growers.
+- **History:** Sao Tome and Principe gained independence from Portugal on 12 July 1975, after centuries as a transit point for the slave trade and a plantation (roça) colony.
+- **Culture:** Tchiloli, a living theatre tradition combining music, dance and drama, was inscribed on UNESCO's Representative List of the Intangible Cultural Heritage of Humanity in 2025.
+- **Politics:** Sao Tome and Principe has a semi-presidential system, and the island of Principe has been an autonomous region since 29 April 1995.
+- **Local pride:** Sao Tomeans take pride in their organic cocoa: the CECAB smallholder cooperative, founded in 2004, is the country's largest cocoa producer and sells organic cocoa to the French chocolate maker Kaoka.
 
 ## Saudi Arabia
 
-- Saudi Arabia has no permanent rivers or lakes, relying entirely on groundwater, seasonal wadis, and one of the world's largest desalination industries for fresh water.
-- Saudi Arabia contains Islam's two holiest cities, Mecca and Medina, and non-Muslims are prohibited from entering Mecca at all.
-- **History:** The modern Saudi state was founded in 1932 by Abdulaziz Ibn Saud, who unified the Arabian Peninsula's rival regions decades after retaking Riyadh's Masmak fort in 1902.
-- **Culture:** The annual Hajj pilgrimage to Mecca draws several million Muslims from around the world and is one of the Five Pillars of Islam.
+- Saudi Arabia is the largest country in the world without permanent rivers, and it is the world's largest producer of desalinated water.
+- Saudi Arabia contains Islam's two holiest cities, Mecca and Medina, and non-Muslims are prohibited from entering Mecca.
+- **History:** The modern Saudi state was proclaimed in 1932 by Abdulaziz Ibn Saud, who had recaptured Riyadh in 1902.
+- **Culture:** The annual Hajj pilgrimage to Mecca, one of the Five Pillars of Islam, drew about 1.67 million pilgrims in 2025, around 1.5 million of them from abroad.
 - **Politics:** Saudi Arabia is an absolute monarchy governed by the House of Saud with no elected national legislature, relying instead on an appointed Consultative Assembly (Shura Council) and the Quran and Sunnah as its basic law.
-- **Local pride:** Saudis take pride in Bedouin-rooted traditions of hospitality, camel culture, and oral poetry passed down across generations.
+- **Local pride:** Saudis take pride in their national football team's 2-1 win over Argentina at the 2022 World Cup, after which the king declared a public holiday.
 
 ## Senegal
 
-- Senegal almost entirely surrounds the smaller nation of The Gambia, save for Gambia's short Atlantic coastline, creating a rare geographic enclave.
-- Senegal is one of the few mainland African countries never to have experienced a successful military coup, maintaining an unbroken multiparty political tradition since independence in 1960.
+- Senegal almost completely surrounds The Gambia, which keeps only a short Atlantic coastline.
+- Senegal has never experienced a coup d'état since independence in 1960, and the army's non-interference in politics is credited with contributing to its stability.
 - **History:** Senegal briefly joined Mali in the short-lived Mali Federation of 1959-60 before the union dissolved and each became a separate independent state.
-- **Culture:** Senegalese wrestling, known as laamb, combines grappling with striking and draws crowds that in many regions rival or exceed those for football.
-- **Politics:** Senegal is a presidential republic that has seen several peaceful transfers of power between parties, including a 2024 election that brought opposition candidate Bassirou Diomaye Faye to the presidency at age 44.
+- **Culture:** Senegalese wrestling, known as laamb, enjoys the status of national sport and has become a national obsession.
+- **Politics:** Senegal is a presidential republic in which opposition candidate Bassirou Diomaye Faye won the March 2024 presidential election and was sworn in on 2 April 2024, aged 44.
 - **Local pride:** Senegalese take great pride in the concept of teranga, a deeply held cultural value of hospitality and generosity toward guests and strangers.
 
 ## Serbia
 
-- The 1914 assassination of Archduke Franz Ferdinand in Sarajevo by a Bosnian Serb nationalist was the immediate trigger of World War I, an event with deep roots in Serbian nationalist politics of the era.
-- Slivovitz, a plum brandy distilled across the countryside, is treated as something close to a national drink and is central to hospitality and toasts.
-- **History:** Medieval Serbia reached its territorial peak under Emperor Dušan in the 14th century before falling under Ottoman domination following the Battle of Kosovo in 1389.
-- **Culture:** Slava, the ritual celebration of a family's patron saint passed down through generations, is a distinctive Serbian Orthodox tradition not shared in this form by other Slavic peoples.
-- **Politics:** Serbia is a parliamentary republic with a unicameral National Assembly, and it officially maintains a declared policy of military neutrality regarding NATO and other blocs.
-- **Local pride:** Serbians take pride in strong traditions of hospitality, extended-family gatherings, and communal coffee culture, along with a resilient national identity shaped by a long and turbulent history.
+- The 1914 assassination of Archduke Franz Ferdinand in Sarajevo by Gavrilo Princip, a Bosnian Serb student, helped trigger the July Crisis and World War I.
+- Slivovitz (šljivovica), a plum brandy, is Serbia's national drink and its traditional rakia.
+- **History:** Serbia became an empire under Stefan Dusan in 1346; after the Battle of Kosovo in 1389 Ottoman suzerainty was established over Serbian lands, and the Ottomans annexed all of modern Serbia by the mid-16th century.
+- **Culture:** Slava, the celebration of a family's patron saint, was inscribed on UNESCO's Representative List of the Intangible Cultural Heritage of Humanity in 2014.
+- **Politics:** Serbia is a parliamentary republic with a unicameral National Assembly, and it describes itself as holding a status of permanent military neutrality, not planning to join a military alliance.
+- **Local pride:** Serbians take pride in their men's basketball team, which won silver at the 2016 Olympics and bronze in 2024, and silver at the 2014 and 2023 FIBA World Cups.
 
 ## Seychelles
 
 - Seychelles is Africa's smallest country by both population and land area, yet has the continent's highest GDP per capita.
-- The Vallée de Mai on Praslin island is one of only a few places on Earth where the coco de mer palm grows wild, producing the largest seed in the entire plant kingdom.
-- **History:** Seychelles was uninhabited until French colonization in the 18th century, was ceded to Britain in 1814, and became independent in 1976.
-- **Culture:** Seychellois Creole, one of the country's three official languages alongside English and French, anchors a Creole culture that blends African, French, and Asian influences in its cuisine, music, and moutya dance.
-- **Politics:** Seychelles is a presidential republic whose National Assembly is elected through a mix of directly contested constituency seats and additional proportional-representation seats.
-- **Local pride:** Seychellois take pride in their multicultural Creole identity and their nation's reputation for environmental stewardship of its islands and marine environment.
+- The Vallee de Mai on Praslin, a UNESCO World Heritage Site since 1983, protects the coco de mer palm, which produces the largest seed in the plant kingdom and grows wild only on Praslin and Curieuse.
+- **History:** Seychelles was uninhabited until French settlers arrived in the 18th century, came under British control after 1810-11, a transfer formalised in the 1814 Treaty of Paris, and became independent in 1976.
+- **Culture:** Seychellois Creole is one of the country's three official languages, alongside English and French.
+- **Politics:** Seychelles is a presidential republic with a 35-member National Assembly: 26 members elected directly in constituencies and nine allocated proportionally by party vote share.
+- **Local pride:** Seychellois take pride in the moutya, a slavery-era dance added to the UNESCO Intangible Cultural Heritage list in 2021.
 
 ## Sierra Leone
 
-- Sierra Leone's capital, Freetown, was founded in 1787 as a settlement for freed and formerly enslaved people, giving the country its very name.
-- Freetown's natural harbor is one of the largest deep-water harbors in the world, a feature that shaped the city's founding and colonial-era importance.
+- Freetown was founded on 11 March 1792 by Black Nova Scotian settlers, on the site of an earlier 1787 settlement for formerly enslaved Black Britons that was destroyed in 1789.
+- Sierra Leone's name derives from the Portuguese 'Serra Leoa', meaning 'lioness mountains', from the Lion Mountains near Freetown.
 - **History:** Sierra Leone endured a brutal civil war from 1991 to 2002, fueled in part by conflict diamonds, which ended with United Nations peacekeeping intervention and a disarmament program.
-- **Culture:** Sierra Leone's Krio language, developed by returned freed slaves known as Creoles, has heavily influenced English-based creole speech across West Africa.
-- **Politics:** Sierra Leone is a presidential republic with a unicameral Parliament that operates alongside a constitutionally recognized system of paramount chiefs governing local chiefdoms.
-- **Local pride:** Sierra Leoneans take pride in their resilience in rebuilding the country after civil war and in longstanding traditions of communal chieftaincy and hospitality.
+- **Culture:** Sierra Leone's Krio language, an English-based creole that grew out of the speech of freed people settled in Freetown and the Creole descendants, is the country's lingua franca.
+- **Politics:** Sierra Leone is a presidential republic with a unicameral Parliament of 149 seats, 14 of which are filled by paramount chiefs representing the chiefdoms.
+- **Local pride:** Sierra Leoneans take pride in their national football team, the Leone Stars, qualifying for the 2021 Africa Cup of Nations, their first appearance since 1996.
 
 ## Singapore
 
-- Singapore is one of the world's few sovereign city-states, alongside Monaco and Vatican City, and imports the great majority of its food and fresh water.
-- The sale of chewing gum has been banned in Singapore since 1992, though possessing and chewing gum brought in for personal use is not itself illegal.
-- **History:** Singapore became independent somewhat unwillingly in 1965 after being expelled from the Federation of Malaysia amid political and ethnic tensions.
-- **Culture:** Singapore's hawker centre food culture, blending Chinese, Malay, Indian, and Peranakan cuisines under one roof, was inscribed on UNESCO's Intangible Cultural Heritage list in 2020.
-- **Politics:** Singapore has been governed continuously by the People's Action Party since independence, and its electoral system includes Group Representation Constituencies that require some wards to field multi-ethnic teams of candidates.
-- **Local pride:** Singaporeans take pride in their nation's rapid transformation from a small trading port into one of the world's most efficient, safe, and orderly modern economies within a single generation.
+- Singapore is one of the world's few sovereign city-states, alongside Monaco and Vatican City, and about 90 percent of its food comes from imports.
+- The sale of chewing gum has been banned in Singapore since 1992, though chewing it is not illegal, and since 2004 therapeutic gum has been available from doctors and pharmacists.
+- **History:** Singapore became independent as the Republic of Singapore on 9 August 1965 after its expulsion from Malaysia.
+- **Culture:** Singapore's hawker centre food culture, blending Chinese, Malay, Indian and other communities' cooking under one roof, was inscribed on UNESCO's Intangible Cultural Heritage list in 2020.
+- **Politics:** The People's Action Party has won large parliamentary majorities in every election since self-government in 1959, and Group Representation Constituencies, introduced in 1988, guarantee minority representation in parliament.
+- **Local pride:** Singaporeans take pride in the public housing programme run by the Housing and Development Board, home to close to 80 percent of the resident population, with flats sold on 99-year leases.
 
 ## Sint Eustatius
 
 - Sint Eustatius, known as Statia, covers about 21 square kilometres and is dominated by a dormant volcano.
-- The island is said to have changed hands 22 times between the Dutch, English and French.
-- **History:** On 16 November 1776 a Dutch fort on the island returned the salute of the American brig Andrew Doria, widely seen as one of the first foreign acknowledgements of the United States.
-- **Culture:** Statia Day is celebrated each 16 November with parades and events marking that first salute.
-- **Politics:** Since 10 October 2010 Sint Eustatius has been a special municipality of the Netherlands with an elected Island Council and an Island Governor.
-- **Local pride:** Statians take pride in the island's outsized role in history as an 18th-century free trading hub nicknamed the Golden Rock, and in their strong community identity.
+- Control of the island is recorded as having changed twenty-one times among the Netherlands, Great Britain and France.
+- **History:** In February 1781 a British force under Admiral Rodney and General Vaughan seized Sint Eustatius after its governor surrendered with little resistance, and French troops retook the island on 26 November 1781.
+- **Culture:** Statia Day, celebrated each 16 November, commemorates the 1776 First Salute, when Fort Oranje returned the salute of the US Continental Navy ship Andrew Doria.
+- **Politics:** Since 10 October 2010 Sint Eustatius has been a special municipality of the Netherlands with an elected island council and a Lieutenant Governor.
+- **Local pride:** Statians take pride in the island's past as the 'Golden Rock', a duty-free free port designated in 1756 that became a major trading hub.
 
 ## Sint Maarten
 
 - Princess Juliana International Airport is famous for jets passing very low over the adjacent beach as they land.
 - English is the most widely spoken language on the Dutch side, and it is an official language alongside Dutch.
-- **History:** Slavery was abolished on the Dutch side of the island on 1 July 1863, fifteen years after France abolished it on the French side.
-- **Culture:** Guavaberry liqueur, made by steeping local guavaberries in rum, is the island's traditional drink and is especially associated with Christmas.
+- **History:** Slavery was abolished on the Dutch side of the island in 1863, fifteen years after France abolished it on the French side in 1848.
+- **Culture:** Guavaberry liqueur, made by infusing rum with local guavaberries, is especially associated with Sint Maarten at Christmas.
 - **Politics:** Sint Maarten became a constituent country within the Kingdom of the Netherlands on 10 October 2010, with its own parliament, prime minister and a Governor representing the Dutch monarch.
-- **Local pride:** Residents take pride in their welcoming, multicultural and bilingual community built around the hospitality industry.
+- **Local pride:** Residents take pride in the St. Maarten Heineken Regatta, held each March and drawing more than 20,000 visitors a year from over 37 countries.
 
 ## Slovakia
 
-- Slovakia is often cited as having one of the highest densities of castles and chateaux in the world relative to its size, with several hundred scattered across the country.
-- Slovakia adopted the euro in 2009, becoming the first of the two states formed from the former Czechoslovakia to do so.
+- Slovakia has many castles, most of them now ruins, built by nobles who favoured easily defensible regions of the country.
+- Slovakia adopted the euro on 1 January 2009 as the 16th member of the eurozone.
 - **History:** Slovakia and the Czech Republic peacefully dissolved their federation in the 1993 'Velvet Divorce,' splitting Czechoslovakia into two states without conflict.
-- **Culture:** The fujara, a long traditional shepherd's flute recognized by UNESCO as intangible cultural heritage, remains a living part of Slovak folk music, especially in mountain regions.
-- **Politics:** Slovakia is a parliamentary republic with a unicameral National Council, and unusually for a largely ceremonial post, its president is chosen by direct popular vote rather than by parliament.
-- **Local pride:** Slovaks take pride in their mountainous countryside and rural shepherding heritage, along with a strong tradition of hospitality passed down through village life.
+- **Culture:** The fujara, a large Slovak shepherd's flute, was inscribed on UNESCO's Representative List of the Intangible Cultural Heritage of Humanity in 2008.
+- **Politics:** Slovakia is a parliamentary republic with a 150-seat unicameral National Council, and its president, who has very limited powers, is elected by direct popular vote for a five-year term.
+- **Local pride:** Slovaks take pride in their ice hockey team, which won the world championship in 2002 and took silver in 2012.
 
 ## Slovenia
 
-- Slovenia is one of the most forested countries in Europe, with roughly 60 percent of its territory covered by forest.
-- Slovenia proposed and now marks World Bee Day each May 20, reflecting the country's outsized beekeeping tradition and its role as home to the Carniolan honeybee breed.
+- Slovenia is the second most-forested country in Europe, with about 60 percent of its territory covered by forests.
+- The Carniolan honey bee is native to Slovenia, which proposed World Bee Day, approved by UN member states in December 2017 and marked each 20 May.
 - **History:** Slovenia declared independence from Yugoslavia in 1991, and the brief Ten-Day War that followed was the shortest of the Yugoslav wars of that decade.
-- **Culture:** Panjske končnice, folk-painted panels decorating traditional beehive fronts, are a distinctive Slovenian folk art form found nowhere else in this exact form.
-- **Politics:** Slovenia is a parliamentary republic with a directly elected National Assembly alongside a separate National Council that advises on social, economic, and regional interests.
-- **Local pride:** Slovenians take pride in their close connection to nature and outdoor life, along with a strong culture of environmental care and hospitality in mountain villages.
+- **Culture:** Beekeeping in Slovenia was added to UNESCO's Representative List of the Intangible Cultural Heritage of Humanity in 2022.
+- **Politics:** Slovenia is a parliamentary republic whose 90-seat National Assembly handles nearly all lawmaking, alongside a largely advisory National Council of social, economic, professional and local representatives.
+- **Local pride:** Slovenians take pride in the UN's proclamation of World Bee Day on 20 May, which followed a Slovenian proposal.
 
 ## Solomon Islands
 
-- The Solomon Islands was the site of some of the most pivotal battles of the Pacific War, including the prolonged Guadalcanal campaign of 1942-43.
-- The country is made up of nearly a thousand islands and islets and is home to more than 70 living languages among a relatively small population.
-- **History:** The Solomon Islands gained independence from the United Kingdom in 1978, and later endured ethnic tension from 1998 to 2003 that was addressed through the Australian-led Regional Assistance Mission to Solomon Islands.
-- **Culture:** Panpipe orchestras, especially those associated with the Are'are people of Malaita, are a distinctive traditional musical form recognized internationally.
-- **Politics:** The Solomon Islands is a parliamentary constitutional monarchy that retains the British monarch as head of state, represented locally by a Governor-General, alongside a unicameral National Parliament.
-- **Local pride:** Solomon Islanders take pride in strong communal village life and customary land tenure systems that tie personal identity closely to ancestral land.
+- The Solomon Islands were the scene of several major land, sea and air battles from 1942 to 1943, including the Guadalcanal campaign.
+- The country consists of six major islands and 992 smaller islands, with about 70 living languages.
+- **History:** The Solomon Islands became independent from the United Kingdom on 7 July 1978, and later endured ethnic violence from 1998 to 2003 that ended after Australian and Pacific Islands police and troops arrived in July 2003 under the Regional Assistance Mission to Solomon Islands.
+- **Culture:** The Are'are people of Malaita are famous for their panpipe ensembles.
+- **Politics:** The Solomon Islands is a parliamentary constitutional monarchy whose monarch is represented by a Governor-General, with a unicameral 50-member National Parliament.
+- **Local pride:** Solomon Islanders take pride in Malaitan shell money, made in the Langalanga lagoon and used for bride price and compensation payments.
 
 ## Somalia
 
 - Somalia has the longest coastline of any mainland African country, stretching over 3,000 kilometers along the Horn of Africa.
-- Somalia was formed in 1960 through the union of the former British Somaliland protectorate and Italian Somaliland shortly after each achieved independence.
-- **History:** Following the 1991 collapse of Siad Barre's government, Somalia entered a prolonged period without an effective central government, giving rise to semi-autonomous regions across the country.
-- **Culture:** Somali oral poetry, particularly the intricate alliterative form known as gabay, carries deep cultural prestige and has historically served as a vehicle for political commentary.
-- **Politics:** Somalia is a federal parliamentary republic with a bicameral Federal Parliament, and its federal member states exercise considerable autonomy from the central government in Mogadishu.
-- **Local pride:** Somalis take great pride in their nomadic pastoral heritage, strong clan-based kinship networks, and long-standing traditions of hospitality toward guests and travelers.
+- Somalia was formed on 1 July 1960 through the union of the former British Somaliland protectorate, which had become independent on 26 June, and the Italian-administered Trust Territory of Somaliland.
+- **History:** Siad Barre's government collapsed in 1991 with the onset of the Somali civil war, and the years that followed saw regional administrations such as Puntland and Somaliland emerge largely outside the control of any central government.
+- **Culture:** Somali poetry, which requires alliteration and includes the classical gabay verse form, carries high social prestige and has been used for political expression, including opposition poems spread on cassette tapes and BBC Somali broadcasts.
+- **Politics:** Somalia is a federal parliamentary republic under a Provisional Constitution, with a bicameral Federal Parliament (a 275-seat lower house and an upper house capped at 54) and six federal member states, which have a degree of autonomy over regional affairs and maintain their own police and security forces.
+- **Local pride:** Somalis take pride in their camels: Somalia is the world's largest producer of camel milk (FAOSTAT 2017 data), and camels are central to the pastoral livestock economy.
 
 ## Somaliland
 
-- Somaliland declared independence from Somalia in 1991 and has since operated its own currency, passport, and government for over three decades, though no United Nations member state has formally recognized it.
-- Somaliland has held several competitive multiparty elections since the 1990s and maintained relative internal peace, in contrast to prolonged instability elsewhere in Somalia.
-- **History:** The territory was a separate British protectorate that briefly gained independence in 1960 before voluntarily uniting with the former Italian Somaliland days later to form Somalia; it declared renewed independence in 1991 as Somalia's central government collapsed into civil war.
-- **Culture:** Somaliland shares the wider Somali tradition of oral poetry and pastoral nomadism, and the port city of Berbera has long served as a historic trade link between the Horn of Africa and the Arabian Peninsula.
-- **Politics:** Somaliland is not recognized as an independent state by any UN member country but functions as a de facto self-governing territory with its own constitution, president, and parliament, administered separately from the internationally recognized Federal Government of Somalia.
-- **Local pride:** Somalilanders take pride in a tradition of consensus-based clan governance and community-driven administration that has allowed them to build and run their own institutions largely on their own terms.
+- Somaliland declared independence from Somalia in 1991 and has since run its own government and its own currency, the Somaliland shilling, introduced in 1994.
+- In November 2024 Somaliland's opposition candidate won the presidential election with about 64 percent of the vote, defeating the incumbent president, in a vote that international observers described as generally peaceful.
+- **History:** The territory was a separate British protectorate that briefly gained independence on 26 June 1960 before uniting with the former Italian Somaliland on 1 July 1960 to form Somalia; it declared renewed independence in 1991 as Somalia's central government collapsed into civil war.
+- **Culture:** The Hargeisa International Book Fair, held every summer since 2008, is one of the largest public book fairs in the Horn of Africa.
+- **Politics:** Somaliland functions as a de facto self-governing territory with its own constitution, president and parliament, administered separately from the Federal Government of Somalia, which claims it as part of its territory; Israel formally recognised it in December 2025 and, as of late 2026, no other state has done so.
+- **Local pride:** Somalilanders take pride in the 1993 Borama conference, a clan-elder reconciliation gathering that appointed a new government and institutionalised the Guurti as the House of Elders.
 
 ## South Africa
 
 - South Africa has three capital cities that divide governmental functions: Pretoria (administrative), Cape Town (legislative), and Bloemfontein (judicial).
-- South Africa recognizes 12 official languages, more than any other country in the world, reflecting its highly diverse population.
-- **History:** South Africa's apartheid system of racial segregation ended in the early 1990s, culminating in the country's first fully democratic, all-race elections in 1994.
+- South Africa has 12 official languages: 11 spoken languages plus South African Sign Language, which was added in 2023.
+- **History:** Negotiations between the National Party and the ANC from 1990 to 1993 led to non-racial elections in April 1994, which ended the apartheid system of racial segregation.
 - **Culture:** A shared braai (barbecue) culture spans communities nationwide, alongside distinctive homegrown musical traditions such as isicathamiya and, more recently, amapiano.
-- **Politics:** South Africa is a parliamentary republic in which the President is elected by the National Assembly rather than directly by voters, under a constitution notable for explicitly banning discrimination based on sexual orientation.
-- **Local pride:** South Africans take deep pride in the philosophy of ubuntu — a shared sense of common humanity and communal solidarity — and in a national identity that celebrates unity across many cultures and communities.
+- **Politics:** South Africa is a parliamentary republic in which the President is elected by the National Assembly rather than directly by voters, and its constitution lists sexual orientation among the prohibited grounds of discrimination.
+- **Local pride:** South Africans take pride in the Springboks, whose Rugby World Cup wins in 1995, 2007, 2019 and 2023 make them the first team to win the tournament four times.
 
 ## South Korea
 
-- South Korea has consistently ranked among the countries with the fastest average internet and mobile broadband speeds in the world for over a decade.
-- South Korea's fertility rate has fallen below 1.0 births per woman, among the lowest ever recorded for a country of its size.
-- **History:** The 1950–1953 Korean War ended in an armistice rather than a peace treaty, meaning the two Koreas remain technically in a state of war to this day.
+- About half of South Korea's roughly 51 million people live in the Seoul Capital Area, which covers Seoul, Incheon and Gyeonggi Province.
+- South Korea's total fertility rate fell to 0.72 births per woman in 2023, the lowest in the world at that time, and rebounded to 0.80 in 2025.
+- **History:** The 1950-1953 Korean War ended in an armistice rather than a peace treaty, and no peace treaty has been signed since.
 - **Culture:** The tradition of kimjang, communal kimchi-making before winter, is recognized by UNESCO as an Intangible Cultural Heritage of Humanity.
-- **Politics:** South Korea's president is limited to a single five-year term with no possibility of re-election, a safeguard against the prolonged authoritarian rule of earlier decades.
-- **Local pride:** Pride in the rapid transformation from post-war poverty to a leading global economy within a single generation, often summed up in the fast-paced 'pali pali' (hurry hurry) work ethic.
+- **Politics:** South Korea's president serves a single non-renewable five-year term, a limit set under the 1987 constitution, and presidents have been barred from re-election since 1981.
+- **Local pride:** South Koreans take pride in Hangul, their alphabet, promulgated in 1446, which is celebrated every 9 October on Hangul Day, a public holiday.
 
 ## South Ossetia
 
-- South Ossetia has an estimated population of only around 30,000 to 50,000 people, making it one of the least populous territories in the Caucasus.
-- The Ossetian language belongs to the Iranian branch of the Indo-European family, setting it linguistically apart from both Georgian and neighboring Turkic languages.
-- **History:** A five-day war between Georgia and Russia broke out in August 2008 after fighting escalated around South Ossetia, and Russian troops have remained stationed in the territory ever since.
-- **Culture:** South Ossetians share a feasting tradition similar to the Georgian supra, with ritualized toasting order and communal meals central to social gatherings.
-- **Politics:** South Ossetia is recognized as independent by Russia and a handful of UN member states; most of the international community considers it part of Georgia, and it is administered de facto by its own government with substantial reliance on Russia for security and finances.
-- **Local pride:** Pride in strong communal and hospitality traditions, including shared feasts and close-knit family and clan ties.
+- South Ossetia's 2015 census counted 53,532 residents, and its officially stated population was just over 56,500 in 2022.
+- The Ossetian language belongs to the Eastern Iranian branch of the Indo-European family and is described as the sole survivor of the Scythian branch of Iranian languages.
+- **History:** War between Georgia and Russia broke out in August 2008 after fighting escalated around South Ossetia, with a ceasefire negotiated on 12 August, and Russian forces remain present in the territory.
+- **Culture:** The Nart sagas, along with the Daredzant and Tsartsiat, form the basic body of folk mythology and literature in the Ossetian cultural region.
+- **Politics:** South Ossetia is recognised as independent by Russia, Nicaragua, Venezuela and Syria among UN members (Nauru withdrew its recognition in July 2026), while Georgia and most states consider it part of Georgia under Russian military occupation; it is administered by its own de facto government, which relies heavily on Russian military aid.
+- **Local pride:** Pride in the Ossetian tradition of the three pies, an important concept in Ossetian culture representing the sun, earth and water.
 
 ## South Sudan
 
-- South Sudan is the world's youngest country, having gained independence only in 2011.
-- Oil accounts for the vast majority of South Sudan's government revenue, making its economy one of the most oil-dependent in the world.
-- **History:** Just over two years after independence, South Sudan descended into a civil war in December 2013, when a political rift within the ruling party escalated into large-scale violence that displaced millions of people before subsiding by the end of the decade.
-- **Culture:** Cattle hold deep cultural and economic significance for groups such as the Dinka and Nuer, central to bridewealth payments and social status rather than primarily raised for meat.
-- **Politics:** South Sudan is governed under a transitional power-sharing arrangement established by a 2018 peace agreement that brought together formerly rival factions from its civil war.
-- **Local pride:** Pride in resilience and community solidarity forged through a long struggle for self-determination, and in rich oral storytelling and musical traditions passed between generations.
+- South Sudan, which gained independence on 9 July 2011, is the world's most recent widely recognised sovereign state.
+- Oil revenues have constituted more than 98 percent of South Sudan's government budget according to an older source, and nearly 80 percent of GDP is linked to the oil industry, making it one of the world's most oil-dependent economies.
+- **History:** In December 2013, less than three years after independence, a rift within the ruling SPLM escalated into a civil war that displaced millions of people; the war officially ended with the Revitalized Agreement in September 2018, though ethnic violence continues.
+- **Culture:** Cattle hold deep symbolic, religious and economic significance for groups such as the Nuer and Dinka, and feature in bridewealth payments and, among the Dinka, in ritual sacrifice.
+- **Politics:** South Sudan has been governed by a transitional power-sharing government set up under the 2018 peace agreement and formed in February 2020; as of October 2026, President Salva Kiir has signed a law dissolving it ahead of general elections scheduled for 22 December 2026.
+- **Local pride:** Pride in the national basketball team, the Bright Stars, which qualified for the Olympic Games for the first time in 2024.
 
 ## Spain
 
-- Spain has the second-highest number of UNESCO World Heritage Sites of any country, trailing only Italy.
+- Spain has about 50 UNESCO World Heritage Sites, placing it among the top five countries in the world, behind Italy, China, France and Germany.
 - Spanish is only one of several official languages in the country — Catalan, Basque, and Galician are co-official in their respective regions.
 - **History:** The Spanish Civil War (1936–1939) led to nearly four decades of dictatorship under Francisco Franco, ending only with his death in 1975 and the subsequent transition to democracy.
-- **Culture:** Spain's late dining hours, with dinner often starting after 9pm, and the tradition of the siesta reflect daily rhythms shaped by historic agrarian labor patterns and climate.
-- **Politics:** Spain is a parliamentary constitutional monarchy organized into 17 highly autonomous communities, some of which, like the Basque Country and Navarre, maintain their own police forces and distinct fiscal arrangements with the central government.
-- **Local pride:** Pride in strong regional identity, expressed through local festivals, cuisine, and fierce loyalty to regional football clubs, often as strongly felt as national identity.
+- **Culture:** The siesta, a long midday break, is thought to stem from hot southern summers and from the post-Civil War economy, and afternoon working hours in Spain typically run from 5 pm until 8 or 9 pm.
+- **Politics:** Spain is a parliamentary monarchy organized into 17 autonomous communities and two autonomous cities, and the Basque Country and Navarre, known as chartered territories, set their own taxes and pay Madrid for common services.
+- **Local pride:** Pride in Spain's organ donation and transplant system, whose deceased donation rate topped global rankings at about 46.9 donors per million people in 2017 and 2019.
 
 ## Sri Lanka
 
-- Sri Lanka produced the world's first female head of government in 1960, decades before most other countries had a woman lead their national government.
-- Sri Lanka is the world's leading source of true cinnamon, supplying most of the global market for the spice.
+- Sri Lanka elected the world's first female prime minister in 1960, when Sirimavo Bandaranaike was sworn in on 21 July.
+- Sri Lanka produces 80 to 90 percent of the world's supply of true cinnamon (Cinnamomum verum).
 - **History:** Sri Lanka's 26-year civil war between the government and the Liberation Tigers of Tamil Eelam (LTTE) came to an end in 2009.
 - **Culture:** The Sinhala and Tamil New Year in April is marked nationwide with distinct rituals, including specific auspicious times for lighting hearths and preparing the first meal of the year.
-- **Politics:** Sri Lanka is a semi-presidential republic in which a directly elected president shares executive authority with a prime minister and parliament.
-- **Local pride:** Pride in the island's tea industry and the global reputation of Ceylon tea for quality.
+- **Politics:** Sri Lanka is a semi-presidential republic in which the president, elected by popular vote for a five-year term, is both head of state and head of government, with a prime minister serving as deputy.
+- **Local pride:** Pride in Ceylon tea: Sri Lanka is the world's fourth-largest tea producer and ranked second in tea export earnings in 2020, and the Ceylon lion logo is a known sign of quality.
 
 ## Sudan
 
 - Sudan was Africa's largest country by area until South Sudan's secession in 2011.
-- Sudan has more ancient pyramids than Egypt, with roughly 200 concentrated at sites such as Meroë, though they are smaller in scale.
+- Sudan has about 255 pyramids built by the Nubians, including those at Meroë, but they are much smaller than Egypt's, standing roughly 6 to 30 metres high.
 - **History:** Sudan gained independence from joint British-Egyptian rule in 1956 and has since experienced numerous military coups and periods of civil war.
-- **Culture:** Sudanese culture blends Arab and African traditions, visible in communal jebena coffee ceremonies shared among family and guests.
+- **Culture:** Sudanese culture blends Arab and African traditions, as seen in the jebena coffee ceremony.
 - **Politics:** Since 2021 Sudan has been governed by a military-led transitional authority, and since 2023 the country has been affected by an ongoing armed conflict between rival military factions.
-- **Local pride:** Pride in warm hospitality customs and a strong sense of communal solidarity that has helped sustain families through decades of hardship.
+- **Local pride:** Pride in gum arabic, which Sudan has dominated as a global supplier since the 1950s, with about 70 percent of world supply in the early 2020s.
 
 ## Suriname
 
 - Suriname is the smallest sovereign country in South America by both population and land area.
-- Suriname is one of the most ethnically diverse countries per capita in the world, with major communities of Indian, Javanese, Creole, Maroon, and Indigenous descent.
+- Dutch is Suriname's official language, and Suriname is the only independent state outside Europe where Dutch is the official and prevailing language.
 - **History:** Suriname gained independence from the Netherlands in 1975, an event that prompted a large wave of emigration to the Netherlands ahead of the transition.
-- **Culture:** Suriname's multi-ethnic heritage is reflected in its calendar of public holidays, which includes celebrations of Diwali, Eid, and Chinese New Year alongside Christian observances.
+- **Culture:** Suriname's public holidays reflect its communities: Keti Koti (1 July) marks the abolition of slavery, Indian Arrival Day falls on 5 June, and Holi Phagwa and Eid al-Fitr are observed alongside Christian holidays.
 - **Politics:** If Suriname's National Assembly cannot elect a president by the required two-thirds majority, the decision passes to an expanded body called the United People's Assembly, which includes regional and local representatives.
-- **Local pride:** Pride in the country's extensive tropical rainforest cover and strong conservation ethic, alongside a laid-back, welcoming social atmosphere.
+- **Local pride:** Pride in pom, a casserole of Creole origin that is a very popular party dish in Suriname.
 
 ## Svalbard and Jan Mayen
 
-- In Longyearbyen on Svalbard the sun does not rise for roughly two months in winter, from about mid-November to late January.
+- In Longyearbyen the polar night lasts from 27 October to 15 February, and mountain shade keeps the sun from most of the town until around 8 March.
 - Svalbard is home to a global seed vault that stores duplicates of seed samples from around the world.
 - **History:** The Svalbard Treaty was signed in Paris on 9 February 1920, and recognised Norwegian sovereignty over the archipelago when it came into force in 1925.
 - **Culture:** Longyearbyen celebrates Solfestuka, the Sun Festival, each March to mark the first sunlight reaching the town after the polar night.
 - **Politics:** Svalbard is under Norwegian sovereignty and administered by a Governor under the Svalbard Treaty, while Jan Mayen is administered as a part of Norway by the Governor of Nordland.
-- **Local pride:** Svalbard's residents take pride in a resilient, close-knit international community that thrives through polar night and midnight sun.
+- **Local pride:** Residents of Longyearbyen can point to Svalbard Bryggeri, which began production in 2015 after Norway's parliament changed the law banning commercial alcohol production and is described as the northernmost commercial brewery in the world.
 
 ## Sweden
 
 - Sweden's 'allemansrätten' (right to roam) law grants anyone the right to walk, camp, and forage on most land regardless of who owns it.
-- Sweden is one of the most cashless societies in the world, with many businesses and even some churches no longer accepting physical currency.
-- **History:** Sweden has not been involved in a war since 1814, one of the longest continuous periods of peace among major European states.
-- **Culture:** Sweden observes 'fika,' a daily social coffee-and-pastry break considered an essential cultural institution rather than a mere snack pause.
-- **Politics:** Sweden's monarch holds a purely ceremonial role with no political power; the prime minister is instead nominated by the Speaker of the Riksdag and approved by parliament.
-- **Local pride:** Pride in 'lagom,' the cultural value of moderation and balance, and in the country's extensive social welfare system.
+- Sweden has moved far toward a cashless economy: by 2016 only about 2 percent of the value transacted was in cash, and fewer than half of Swedish bank branches handled cash.
+- **History:** Sweden has not been at war since 1814, when its last campaign was fought.
+- **Culture:** Fika is a Swedish social institution: a coffee break, usually with buns or pastries, held in workplaces, homes and cafes, and some employment contracts even include it.
+- **Politics:** Sweden's monarch has a formal, symbolic and representational role and takes no part in selecting the government; the Speaker of the Riksdag nominates the prime minister, who is confirmed unless a majority of 175 or more members vote no.
+- **Local pride:** Pride in Eurovision success: Sweden has won the contest seven times, a record it shares with Ireland, and the 2026 contest did not add a win.
 
 ## Switzerland
 
 - Switzerland has four official national languages: German, French, Italian, and Romansh.
-- Switzerland practices direct democracy extensively, holding multiple binding national referendums on a wide range of policy issues nearly every year.
-- **History:** Switzerland has maintained a policy of armed neutrality since the Congress of Vienna in 1815, avoiding involvement in both World Wars.
-- **Culture:** Swiss culture is strongly regional, with alphorn playing and yodeling traditions rooted in rural Alpine communities across the German-speaking cantons.
-- **Politics:** Switzerland's head of state is a seven-member collective body, the Federal Council, with the ceremonial presidency rotating annually among its members.
-- **Local pride:** Pride in precision, quality, and craftsmanship, especially in watchmaking, alongside a strong outdoor and mountaineering culture rooted in daily Alpine life.
+- Switzerland holds national votes about four times a year, in which citizens decide federal referendums and popular initiatives.
+- **History:** The Congress of Vienna recognised permanent Swiss neutrality in 1815, and Switzerland has not been in an international war since then; it was not invaded in either World War.
+- **Culture:** Alphorn playing and yodeling are rooted in rural Alpine herding life, and UNESCO recognised yodeling in German-speaking Switzerland and Liechtenstein as intangible cultural heritage in 2025.
+- **Politics:** Switzerland's seven-member Federal Council acts as a collective presidency, with a President elected annually by the Federal Assembly from among its members in a largely ceremonial role.
+- **Local pride:** Pride in Swiss watchmaking, protected by the "Swiss made" label, which for watches requires that development, movement, casing and final inspection take place in Switzerland and at least 60 percent of manufacturing costs be Swiss.
 
 ## Syria
 
 - Syria is home to Damascus, widely regarded as one of the oldest continuously inhabited cities in the world.
-- Before its civil war, Syria was a significant regional producer and exporter of olive oil and cotton.
-- **History:** Syria gained independence from French mandate rule in 1946; the Assad family then ruled the country from 1971 in an authoritarian one-party system until a 2011 popular uprising escalated into a prolonged civil war.
-- **Culture:** Syrian cuisine, including dishes like kibbeh and an array of mezze, reflects a broader Levantine culinary tradition shared with Lebanon, Jordan, and Palestine.
-- **Politics:** Since the fall of the Assad government in late 2024, Syria has been governed by a transitional authority overseeing efforts to draft a new constitution and organize future elections.
-- **Local pride:** Pride in cultural resilience and a deep sense of historical heritage sustained through years of conflict.
+- Before its civil war, Syria was a significant cotton producer and exporter, with cotton long its most important cash crop.
+- **History:** French troops withdrew from Syria in April 1946, giving it de facto independence; Hafez al-Assad took power in 1970 and his son Bashar succeeded him in 2000, until the 2011 uprising became a civil war lasting about 13 years.
+- **Culture:** Syrian cuisine, including kibbeh dishes made from bulgur and minced lamb and selections of mezze, belongs to the wider Levantine culinary grouping.
+- **Politics:** Since the fall of the Assad government on 8 December 2024, Syria has been led by transitional president Ahmed al-Sharaa (appointed 29 January 2025) under a March 2025 Constitutional Declaration that sets a five-year transition (2025-2030), with a Transitional People's Assembly as of late 2026.
+- **Local pride:** Pride in the Damask rose of Al-Mrah near Damascus, whose cultivation and rose-oil know-how was inscribed on UNESCO's intangible heritage list in 2019.
 
 ## Taiwan
 
-- Taiwan produces the large majority of the world's most advanced semiconductor chips, led by manufacturers such as TSMC.
+- TSMC, based in Taiwan, holds about 70 percent of the global foundry (contract chipmaking) market according to Counterpoint Research data cited in early 2026.
 - Taiwan became the first place in Asia to legalize same-sex marriage, in 2019.
 - **History:** The Republic of China government relocated to Taiwan in 1949 after losing the Chinese Civil War to the Communist Party on the mainland.
-- **Culture:** Night markets are central to Taiwanese social life, featuring street foods like beef noodle soup and bubble tea, a drink that originated in Taiwan.
-- **Politics:** Taiwan governs itself as a self-ruled democracy with its own directly elected president and legislature; it is claimed by the People's Republic of China, which regards it as a province, and only a small number of UN member states maintain formal diplomatic relations with it.
-- **Local pride:** Pride in a strong work ethic and spirit of innovation, paired with a vibrant civic culture and high levels of community volunteering.
+- **Culture:** Night markets, which grew up around temples and neighborhoods, serve small eats such as oyster omelets and stinky tofu, and bubble tea originated in Taiwan in the 1980s.
+- **Politics:** Taiwan governs itself as a democracy with a directly elected president and legislature; the People's Republic of China claims it, and 11 UN member states (as of January 2024) have formal diplomatic relations with it.
+- **Local pride:** Taiwan's single-payer National Health Insurance, launched on 1 March 1995, covered 99.9 percent of the population by the end of 2023.
 
 ## Tajikistan
 
-- Over 90 percent of Tajikistan's territory is mountainous, including much of the Pamir range, making it the most mountainous country in Central Asia.
+- About 93 percent of Tajikistan's territory is mountainous, including much of the Pamir range, with roughly half of the country above 3,000 meters.
 - Tajik is a variety of Persian, setting Tajikistan apart linguistically from its Turkic-speaking Central Asian neighbors.
-- **History:** Tajikistan endured a civil war from 1992 to 1997 shortly after gaining independence from the Soviet Union, one of the deadliest conflicts in the post-Soviet region.
-- **Culture:** Tajik culture places strong emphasis on classical Persian poetry, with deep reverence for early poets such as Rudaki, regarded as a founding figure of Persian literature.
-- **Politics:** Tajikistan has been led by the same president since 1994, after constitutional changes granted him the special title 'Leader of the Nation' and removed term limits specifically for him.
-- **Local pride:** Pride in warm hospitality and close-knit family and community ties, particularly among the country's mountain communities.
+- **History:** Tajikistan endured a civil war from May 1992 to June 1997, shortly after independence from the Soviet Union, with estimated deaths ranging from 20,000 to 150,000.
+- **Culture:** Tajik culture reveres the classical Persian poet Rudaki, whom Tajikistan calls the father of Tajik literature and Iran acknowledges as founder of New Persian poetry.
+- **Politics:** Emomali Rahmon has led Tajikistan since 1992 (as president since 1994); a 2015 law gave him the title 'Leader of the Nation' and a 2016 referendum removed presidential term limits.
+- **Local pride:** Tajikistan takes pride in its hydropower industry, drawing on its mountain rivers, which is a major energy source and makes electricity one of its exports.
 
 ## Tanzania
 
-- Tanzania is home to Mount Kilimanjaro, Africa's tallest peak, and to the Serengeti ecosystem, which hosts one of the largest terrestrial mammal migrations on Earth.
+- Tanzania is home to Mount Kilimanjaro, the highest mountain in Africa, and to the Serengeti, which hosts one of the world's largest land animal migrations by total body weight.
 - Tanzania was formed in 1964 through the union of Tanganyika and Zanzibar, and Zanzibar still retains its own president, legislature, and constitution.
-- **History:** Julius Nyerere led Tanganyika to independence in 1961 and went on to pursue a socialist policy known as Ujamaa, emphasizing collective agriculture through the 1970s.
+- **History:** Julius Nyerere led Tanganyika to independence in 1961 and promoted Ujamaa, his form of African socialism, which pushed communal farms and was laid out in the 1967 Arusha Declaration.
 - **Culture:** Swahili, widely spoken across Tanzania, developed as a trade language along the East African coast, blending Bantu grammatical roots with substantial Arabic vocabulary.
-- **Politics:** Tanzania is a union republic with a directly elected president; since multiparty elections were introduced in 1992, the country has been continuously led by the same ruling party, Chama Cha Mapinduzi (CCM).
-- **Local pride:** Pride in a long history of peaceful coexistence and national unity across more than 120 ethnic groups, and a shared passion for football.
+- **Politics:** Tanzania is a union republic with a directly elected president; multiparty democracy was adopted in 1992 and Chama Cha Mapinduzi (CCM) has held power since independence, with President Samia Suluhu Hassan winning nearly 98 percent in October 2025 after the two largest opposition parties were barred.
+- **Local pride:** Tanzanite, a gemstone found naturally only in a small area of the Mererani Hills in northern Tanzania, is a source of national pride and a significant mining industry.
 
 ## Thailand
 
@@ -2110,257 +2101,257 @@
 - Thailand has long been among the world's largest rice exporters, with rice cultivation central to both its economy and rural way of life.
 - **History:** The country was known as Siam until it was officially renamed Thailand in 1939.
 - **Culture:** Thailand's Songkran festival, marking the Thai New Year, is celebrated nationwide with large-scale water fights symbolizing cleansing and renewal.
-- **Politics:** Thailand is a constitutional monarchy that has experienced more than a dozen military coups since 1932, among the highest counts of any country in the modern era.
-- **Local pride:** Pride in the concept of 'sanuk,' a fun-loving approach to daily life, and in a reputation for warm hospitality.
+- **Politics:** Thailand is a constitutional monarchy that has experienced 12 successful military coups since 1932, the most recent in 2014.
+- **Local pride:** Thais take pride in their cuisine: tom yum kung was inscribed on UNESCO's Representative List of the Intangible Cultural Heritage of Humanity in 2024.
 
 ## Timor-Leste
 
 - Timor-Leste is one of only two predominantly Roman Catholic nations in Asia, alongside the Philippines.
-- Timor-Leste was a Portuguese colony for over 400 years before a brief 1975 independence was followed by a lengthy Indonesian occupation.
+- Timor-Leste was a Portuguese colony from the 16th century until 1975, when Fretilin declared independence on 28 November 1975 and Indonesia invaded on 7 December.
 - **History:** Timor-Leste achieved full independence in 2002 after a UN-administered transition following a 1999 referendum in which the population voted overwhelmingly to separate from Indonesia.
-- **Culture:** Tais, hand-woven textiles with patterns distinct to different regions, hold important ceremonial and social significance in Timorese life.
-- **Politics:** Timor-Leste is a semi-presidential republic with a directly elected president and a prime minister who leads the government, its legal system drawing on both Portuguese and Indonesian influences.
-- **Local pride:** Pride in national resilience and the hard-won achievement of independence after decades of occupation and struggle.
+- **Culture:** Tais, hand-woven textiles whose designs, colours and styles vary across the country's thirteen districts, are used for ceremonial adornment, as a sign of respect toward guests, and in weddings and burials.
+- **Politics:** Timor-Leste is a unitary semi-presidential republic whose president is elected by popular vote for a five-year term, in a political system based on the Portuguese model.
+- **Local pride:** Timor-Leste's coffee, grown by about 67,000 households as of 2009, ranks among the country's leading exports after petroleum and is a source of national pride.
 
 ## Togo
 
-- Togo is one of the narrowest countries in the world, stretching roughly 540 km from north to south while measuring as little as 50 km across at some points.
-- Togo is widely regarded as the birthplace of Vodun (voodoo), a religion that originated among the Ewe and neighboring peoples of the region and is still openly practiced today.
+- Togo is a long, thin strip of land that stretches about 579 km north from the Gulf of Guinea but is only about 160 km wide at its broadest point.
+- The western part of the old Togoland mandate, British Togoland, voted to join the Gold Coast and became part of independent Ghana in 1957, leaving only French Togoland to become Togo.
 - **History:** Togo was a German protectorate until World War I, after which it was split into French and British mandates; French Togoland became the independent Republic of Togo in 1960.
-- **Culture:** The Evala wrestling festival, an annual rite-of-passage tournament held by the Kabye people in the Kara region, tests young men's strength and courage as a mark of passage into adulthood.
-- **Politics:** The Gnassingbé family has held the presidency continuously since 1967, and a 2024 constitutional overhaul shifted Togo from a presidential to a parliamentary-style system with an executive chosen by the legislature.
-- **Local pride:** A strong tradition of small-scale entrepreneurial market trading, historically led by women traders, paired with tight-knit family and village solidarity.
+- **Culture:** The Evala wrestling festival, held yearly by the Kabye of northern Togo after a retreat that marks young men's initiation into adulthood, is a rite-of-passage tournament in which wrestlers are initiated whether they win or lose.
+- **Politics:** The Gnassingbe family has ruled Togo since 1967, and a constitutional change adopted in May 2024 and in effect from May 2025 moved the country from a presidential to a parliamentary system.
+- **Local pride:** Togolese take pride in the Nana Benz, the Lome businesswomen who traded African wax prints and reached their peak of wealth and prominence in the 1970s.
 
 ## Tokelau
 
-- Tokelau has no airport or harbour on its three atolls and is reached by boat from Samoa, a voyage of roughly a day.
-- In December 2011 Tokelau skipped 30 December, moving to the west side of the International Date Line together with Samoa.
+- Tokelau has no airport and no harbours for large vessels on its three atolls, and is reached by a fortnightly boat from Apia, Samoa, a trip of a little over a day.
+- At midnight on 29 December 2011 Tokelau moved to UTC+13:00, omitting 30 December from its calendar.
 - **History:** Tokelau was transferred from British to New Zealand administration in the 1920s and was formally made part of New Zealand's territory from 1949.
-- **Culture:** Fatele, a traditional performance of singing and dancing, is a central part of community celebrations on each atoll.
+- **Culture:** Fatele, a dance performed at many community gatherings and events, is the best-known form of traditional Tokelauan music.
 - **Politics:** Tokelau is a non-self-governing territory administered by New Zealand, where each atoll's village council of elders (taupulega) holds local authority and a national General Fono meets for territory-wide matters.
-- **Local pride:** Tokelauans take pride in the practice of inati, sharing fish and other food catches equally among households, a communal way of life across the atolls.
+- **Local pride:** Tokelauans take pride in their own language, Tokelauan, which is co-official with English in Tokelau and has only a few thousand speakers worldwide.
 
 ## Tonga
 
-- Tonga is the only country in the Pacific never formally colonized by a European power, having instead been a self-governing British-protected state from 1900 to 1970.
+- Tonga was never colonized: it was a British protected state from 1900 to 1970, with Britain handling foreign affairs while domestic affairs stayed under Tongan control.
 - The 2022 eruption of the underwater Hunga Tonga volcano near Tonga was the most powerful atmospheric explosion ever recorded by modern instruments, sending a plume of water vapor into the mesosphere.
 - **History:** Tonga became a constitutional monarchy in 1875 under King George Tupou I and gained full independence from British protection in 1970 while keeping its monarchy intact.
-- **Culture:** Ngatu, decorated bark cloth made from mulberry tree fiber, is produced communally by women and remains central to gift-giving at weddings, funerals, and title ceremonies.
-- **Politics:** Tonga retains an active monarchy with reserve powers over the military and certain appointments; a 2010 reform gave commoners a majority of directly elected seats in the Legislative Assembly alongside nobles' representatives.
-- **Local pride:** A fiercely regarded national rugby tradition and a deep sense of hospitality and rank-based respect (faka'apa'apa) that structures everyday social life.
+- **Culture:** Ngatu, decorated bark cloth made from paper mulberry, is produced communally by women and is central to gift-giving at weddings, funerals and other ceremonies.
+- **Politics:** Tonga is a monarchy in which the king is head of state and commander-in-chief of the armed forces, and its 26-seat Legislative Assembly has 17 people's representatives and nine nobles' representatives, with the prime minister appointed from among its members.
+- **Local pride:** Tongans take pride in their rugby league team, Mate Ma'a Tonga, which beat Australia 16-12 in Auckland in 2019 after beating Great Britain 14-6 the week before.
 
 ## Transnistria
 
-- Transnistria still uses a flag bearing the Soviet hammer and sickle, one of the last places in the world to do so as an official state symbol.
-- Transnistria issues its own currency, the Transnistrian ruble, which has no value or recognition outside its own territory.
-- **History:** Transnistria declared independence from Moldova in 1990 as the Soviet Union was collapsing, leading to a short armed conflict in 1992 after which a ceasefire left Russian troops stationed in the region.
-- **Culture:** Daily life and administration are conducted predominantly in Russian, reflecting the territory's mixed Russian, Ukrainian, and Moldovan population.
-- **Politics:** Transnistria is not recognized as a sovereign state by any United Nations member; it functions as a de facto independent entity with its own government, parliament, and military headquartered in Tiraspol, and its political status remains the subject of long-running, OSCE-mediated negotiations with Moldova.
-- **Local pride:** A strong sense of self-reliant, industrious community identity and pride in preserving a distinct multiethnic way of life amid the region's unresolved status.
+- Transnistria's official state flag still carries the Soviet hammer and sickle, a design inherited from the flag of the Moldavian Soviet Socialist Republic.
+- Transnistria issues its own currency, the Transnistrian ruble.
+- **History:** Transnistria declared independence from the Moldavian SSR on 2 September 1990, and a war from March to July 1992 ended in a ceasefire, with Russian peacekeeping troops remaining in the region.
+- **Culture:** Russian, Moldovan and Ukrainian are the three official languages, and Russians, Moldovans and Ukrainians were the largest groups in the 2015 census.
+- **Politics:** Transnistria is an unrecognised state that is internationally recognised as part of Moldova but governed de facto by its own authorities from Tiraspol, and the OSCE has sought to facilitate a negotiated settlement.
+- **Local pride:** FC Sheriff Tiraspol, based in Tiraspol, beat Real Madrid 2-1 at the Santiago Bernabeu on 28 September 2021 in the Champions League, an away win described as an upset.
 
 ## Trinidad and Tobago
 
-- The steelpan, the only major acoustic musical instrument invented in the 20th century, was created in Trinidad from repurposed oil drums.
-- Trinidad's Pitch Lake is the largest natural deposit of asphalt in the world, a bubbling reservoir of solidified tar that has been mined for over a century.
+- The steelpan was developed in Trinidad and Tobago in the 1930s and 1940s from improvised percussion that included oil drums.
+- Trinidad's Pitch Lake is the largest natural deposit of asphalt in the world and is still mined today.
 - **History:** Trinidad and Tobago gained independence from Britain in 1962 and became a republic within the Commonwealth in 1976.
-- **Culture:** Trinidad's pre-Lenten Carnival, with its calypso and soca competitions, is one of the most influential festival traditions in the Caribbean and has shaped similar celebrations worldwide.
-- **Politics:** The country is a parliamentary republic with a largely ceremonial president and an executive Prime Minister, while Tobago holds its own elected House of Assembly with limited self-governing powers.
-- **Local pride:** Pride in a warm, easygoing conviviality often called 'liming,' and in a strong sense of harmony between the country's Afro- and Indo-Trinidadian communities.
+- **Culture:** Trinidad's Carnival is held on the Monday and Tuesday before Ash Wednesday, with J'ouvert marking the start of the two official days.
+- **Politics:** The country is a parliamentary republic whose president is chosen by an electoral college and appoints the prime minister, who leads the Cabinet and holds executive power, while the Tobago House of Assembly has limited autonomy over Tobago.
+- **Local pride:** Doubles, a street snack of curried chickpeas (channa) in fried bara bread, was first sold in Princes Town in 1936 and remains popular across Trinidad and Tobago.
 
 ## Tunisia
 
-- Tunisia's El Djem amphitheater is one of the largest Roman amphitheaters ever built, larger than many surviving in Italy itself.
-- Tunisia's 2010–2011 street protests, sparked by a single act of self-immolation, ignited the wider wave of uprisings across the Arab world known as the Arab Spring.
-- **History:** The Jasmine Revolution of December 2010 to January 2011 forced President Zine el-Abidine Ben Ali from power after 23 years in office, the first government toppled in the Arab Spring.
-- **Culture:** Harissa, a spicy chili paste, is a near-universal condiment in Tunisian cuisine and is recognized by UNESCO as an intangible cultural heritage practice.
-- **Politics:** Tunisia adopted a new, more democratic constitution in 2014 after its 2011 revolution, though a 2022 constitutional overhaul significantly expanded presidential powers at the expense of parliament.
-- **Local pride:** Pride in the country's comparatively high literacy and education levels within the region, and in a strong tradition of communal, hospitality-centered daily life built around shared meals and mint tea.
+- The El Djem amphitheatre, a UNESCO World Heritage Site since 1979, is one of the biggest amphitheatres in the world and had an estimated capacity of 35,000.
+- Tunisia's Code of Personal Status, promulgated in 1956, banned polygamy and required both spouses' consent to marry, a landmark of family law in the Arab world.
+- **History:** The Jasmine Revolution of 17 December 2010 to 14 January 2011 forced President Zine el-Abidine Ben Ali from power after 23 years in office and inspired protests across the Arab world.
+- **Culture:** Harissa, a chili paste described as Tunisia's main condiment, was added to UNESCO's intangible cultural heritage list in 2022.
+- **Politics:** Tunisia adopted a new constitution in January 2014 after its 2011 revolution, dividing executive power between a president and a prime minister, but a constitution approved in a July 2022 referendum (officially about 94.6% in favour on roughly 30.5% turnout) set up a presidential regime that expanded presidential power.
+- **Local pride:** Tunisia's olive oil industry, with Tunisia ranking fifth among world olive oil producers in 2022 at about 235,000 tonnes.
 
 ## Turkey
 
-- Istanbul is the only major city in the world situated on two continents, split by the Bosphorus strait between Europe and Asia.
-- Göbekli Tepe in southeastern Turkey, dated to around 9600 BCE, is considered by many archaeologists the oldest known monumental structure built by humans, predating agriculture and pottery.
-- **History:** Mustafa Kemal Atatürk founded the modern Republic of Turkey in 1923 from the remnants of the Ottoman Empire, introducing sweeping secularizing reforms including a new alphabet and legal code.
+- Istanbul, Turkey's largest city, straddles Europe and Asia across the Bosphorus strait, making it one of the few major cities in the world on two continents.
+- Göbekli Tepe in southeastern Turkey, a UNESCO World Heritage Site since 2018, is recognised by UNESCO as one of the first manifestations of human-made monumental architecture, with some of its structures dated to about 9600 BCE.
+- **History:** The Republic of Turkey was proclaimed on 29 October 1923, and Atatürk's secularizing reforms included abolishing the caliphate in 1924 and adopting a Swiss-derived civil code in 1926.
 - **Culture:** Turkish coffee preparation, along with the tradition of reading fortunes in the leftover coffee grounds, is recognized by UNESCO as an intangible cultural heritage practice.
-- **Politics:** A 2017 referendum shifted Turkey from a parliamentary to a presidential system, abolishing the office of Prime Minister and concentrating executive authority in the presidency.
-- **Local pride:** Pride in warm hospitality and a deeply rooted tea-drinking culture, along with strong regional and family loyalty expressed through generous, unhurried hosting of guests.
+- **Politics:** A referendum on 16 April 2017 replaced Turkey's parliamentary system with a presidential one, abolishing the office of Prime Minister, with the change taking effect after the 2018 elections.
+- **Local pride:** Pride in Turkey's tea culture: the country ranks first in the world for per-capita tea consumption, at roughly 3 kilograms per person a year, or almost four glasses a day.
 
 ## Turkmenistan
 
-- The Darvaza gas crater, known as the 'Door to Hell,' has been burning continuously in the Karakum Desert since it was ignited decades ago.
-- The capital, Ashgabat, holds a Guinness World Record for the highest concentration of white marble-clad buildings of any city on Earth.
-- **History:** After independence from the Soviet Union in 1991, first president Saparmurat Niyazov built an intense personality cult, including renaming the months of the year after himself and members of his family.
-- **Culture:** The Akhal-Teke horse, prized for its distinctive metallic sheen, is a Turkmen national symbol featured on the country's emblem and celebrated in an annual national holiday.
-- **Politics:** Turkmenistan is widely regarded as one of the world's most closed and tightly controlled states, with a single dominant party, heavily restricted independent media, and limited internet access.
-- **Local pride:** Pride in intricate hand-woven carpet traditions passed down through generations, and in a strong culture of hospitality and respect for elders in everyday life.
+- The Darvaza gas crater, known as the 'Door to Hell,' in the Karakum Desert has burned for decades, reportedly since Soviet engineers drilled there in 1971, though its origins are uncertain and its flames had shrunk to about a third of their former size by 2025 after wells were drilled to capture methane.
+- In 2013 Ashgabat was included in the Guinness Book of Records for having the world's highest concentration of white marble buildings.
+- **History:** Under president Saparmurat Niyazov, who built an intense personality cult, months were renamed, with January named Turkmenbashy after his adopted title and April named after his mother; the names were abolished in 2008.
+- **Culture:** The Akhal-Teke horse, prized for its characteristic metallic sheen, is a Turkmen national symbol featured on the country's emblem and honoured on an annual Turkmen Horse Day.
+- **Politics:** Freedom House's Freedom in the World 2026 report rates Turkmenistan 'Not Free' with a score of 1 out of 100, saying elections are tightly controlled and ensure nearly unanimous victories for the president.
+- **Local pride:** Pride in the traditional art of Turkmen carpet making, inscribed on UNESCO's Representative List of Intangible Cultural Heritage in 2019 and celebrated on National Carpet Day each last Sunday of May.
 
 ## Turks and Caicos Islands
 
 - The territory uses the United States dollar as its official currency.
-- Its capital, Cockburn Town, is on Grand Turk, while Providenciales is the most heavily visited and developed island.
-- **History:** From the late 17th century, salt raking by settlers from Bermuda became the foundation of the islands' economy for generations.
-- **Culture:** Rake 'n' scrape, also called ripsaw music, is the traditional music of the islands and is played using a carpenter's saw as a percussion instrument.
-- **Politics:** The Turks and Caicos Islands are a British Overseas Territory with a Governor, a Premier and Cabinet, and an elected House of Assembly under the 2011 constitution.
-- **Local pride:** Islanders take pride in their fishing heritage, especially the harvesting of conch and spiny lobster that has long sustained families.
+- Its capital, Cockburn Town, is on Grand Turk, while Providenciales is the most tourist-oriented and developed island and home to most of the population.
+- **History:** Bermudian salt rakers worked the islands seasonally and built the first permanent settlement on Grand Turk in 1681, making salt the islands' main early industry.
+- **Culture:** Ripsaw music, a form of mento that originated in the islands, is their best-known musical genre and is played by scraping a handsaw with a knife blade.
+- **Politics:** The Turks and Caicos Islands are a British Overseas Territory with a Governor appointed by the monarch, a Premier, and a unicameral House of Assembly of 19 seats, 15 elected and four appointed by the Governor, under the constitution that took effect in 2012.
+- **Local pride:** Islanders take pride in their conch and spiny lobster fisheries, which are among the territory's primary natural resources.
 
 ## Tuvalu
 
 - Tuvalu is the fourth-smallest country in the world by land area, with a total territory of only about 26 square kilometers spread across nine islands and atolls.
-- Tuvalu earns a significant share of government revenue by leasing rights to its '.tv' internet domain to streaming and broadcast companies worldwide.
-- **History:** Formerly part of the British Gilbert and Ellice Islands colony, Tuvalu separated administratively in 1975 and became fully independent in 1978.
-- **Culture:** Traditional community meeting houses, known locally as maneapa, remain the center of communal decision-making and social gatherings on each atoll.
-- **Politics:** Tuvalu has no formal political parties; members of parliament are elected as independents and then negotiate among themselves to form a government.
-- **Local pride:** Pride in close-knit communal governance and resilience, and in a seafaring, atoll-based way of life adapted to a changing environment.
+- Tuvalu earns revenue by licensing its '.tv' internet domain, which accounted for about 8.4 percent of government revenue in 2019.
+- **History:** Tuvalu was part of the British Gilbert and Ellice Islands colony until the colony was separated in 1975, and it became fully independent on 1 October 1978.
+- **Culture:** The maneapa, the traditional island meeting hall, is an open meeting place where chiefs and elders deliberate and make decisions, and it also hosts weddings and community activities.
+- **Politics:** Tuvalu has no formal political parties; its 16 members of parliament are elected largely on personal and family ties and reputation, and they choose the Prime Minister.
+- **Local pride:** Pride in the fatele, the competitive traditional song and dance in which each island divides into two sides and songs are repeated ever louder and faster, with time beaten on mats or wooden boxes.
 
 ## U.S. Virgin Islands
 
 - Traffic in the U.S. Virgin Islands drives on the left, even though most vehicles are the left-hand-drive type used in the United States.
 - Roughly 60 percent of the island of St. John is protected as national park land.
 - **History:** The United States bought the Danish West Indies from Denmark for $25 million in gold, with the transfer taking place on 31 March 1917.
-- **Culture:** Quelbe, a folk music style with roots in the islands' African and European traditions, and mocko jumbie stilt dancing are well-known Virgin Islands traditions.
+- **Culture:** Quelbe, the territory's official music, a folk song style performed by scratch bands that date to the days of slavery, and mocko jumbie stilt dancing are well-known Virgin Islands traditions.
 - **Politics:** The U.S. Virgin Islands are an unincorporated, organized territory of the United States governed under the Organic Act, with an elected governor, a 15-member Legislature and a non-voting delegate in the U.S. House of Representatives.
-- **Local pride:** Residents take pride in a distinctive Virgin Islands cultural identity, blending African, Danish and Caribbean heritage, and in their resilience in rebuilding after hurricanes.
+- **Local pride:** Residents take pride in St. Thomas Carnival, a roughly month-long festival, typically in April, with children's and adults' parades and calypso.
 
 ## Uganda
 
-- Uganda hosts more than half of the world's remaining mountain gorilla population, concentrated in its southwestern forests.
-- The White Nile begins its journey at Jinja, where it flows out of Lake Victoria, making Uganda a source point for the world's longest river.
-- **History:** Following independence from Britain in 1962, Uganda endured a brutal period under Idi Amin's rule from 1971 to 1979, including the 1972 mass expulsion of the country's South Asian population.
-- **Culture:** Matoke, steamed and mashed green bananas, is a staple dish eaten across most of Uganda's ethnic communities.
-- **Politics:** Uganda's president has held office continuously since 1986, after a 2005 constitutional amendment removed the presidential term limits that had previously been in place.
-- **Local pride:** Pride in warm hospitality and a strong sense of community resilience, often summed up in Uganda's popular nickname as the 'Pearl of Africa.'
+- Uganda is home to a large share of the world's roughly 1,063 mountain gorillas (2019 census), including those in Bwindi Impenetrable National Park in the southwest, where a 2018 census counted 459.
+- Ripon Falls, the outlet of Lake Victoria at Jinja long regarded as the traditional source of the Nile, was submerged by the Owen Falls (Nalubaale) Dam completed in 1954.
+- **History:** Following independence from Britain in 1962, Uganda lived under Idi Amin's rule from 1971 to 1979, including the 1972 expulsion of tens of thousands of Asians.
+- **Culture:** Matoke, steamed and mashed green bananas, is a staple base dish in central Uganda, while millet ugali (kalo) is more common in the north, east and west.
+- **Politics:** Yoweri Museveni took power in January 1986, and Parliament abolished presidential term limits in 2005.
+- **Local pride:** Pride in Martyrs' Day each 3 June, the feast marking the 1886 executions of Christian converts, which draws massive pilgrimages to the Basilica of the Uganda Martyrs at Namugongo.
 
 ## Ukraine
 
-- Ukraine's fertile 'black earth' (chernozem) soil is among the most productive in the world, earning it the long-standing nickname 'breadbasket of Europe.'
-- The 1986 Chernobyl disaster, the worst nuclear accident in history, occurred in northern Ukraine and continues to shape a large exclusion zone to this day.
+- Ukraine's chernozem ('black earth') soil is very fertile and its layer can reach up to 1.5 metres in depth.
+- The 1986 Chernobyl disaster, near Pripyat in what was then the Ukrainian SSR, was rated level 7, the maximum, on the International Nuclear Event Scale and led to a 30-kilometre exclusion zone around the plant.
 - **History:** Ukraine declared independence from the Soviet Union in 1991, confirmed by a referendum in which over 90% of voters supported separation.
 - **Culture:** Pysanky, intricately patterned Easter eggs made using a wax-resist dyeing technique, and the embroidered vyshyvanka shirt are enduring symbols of Ukrainian folk identity.
-- **Politics:** Ukraine is a unitary semi-presidential republic with a directly elected president and a unicameral parliament, the Verkhovna Rada; martial law imposed in 2022 has suspended regularly scheduled elections.
-- **Local pride:** Pride in a strong volunteer and mutual-aid spirit that binds communities together, and in a rich choral and folk-song tradition passed down through generations.
+- **Politics:** Ukraine is a unitary semi-presidential republic with a unicameral parliament, the Verkhovna Rada; the next parliamentary election is not scheduled while martial law, imposed in 2022, remains in force.
+- **Local pride:** Pride in borscht, whose cooking culture UNESCO inscribed on its List of Intangible Cultural Heritage in Need of Urgent Safeguarding in July 2022.
 
 ## United Arab Emirates
 
 - The UAE is a federation of seven separate emirates, each of which retains significant control over its own natural resources and local governance.
-- Falconry remains a living tradition in the UAE, recognized by UNESCO as intangible cultural heritage, and prized falcons are sometimes issued their own passports for travel.
-- **History:** The UAE was formed in 1971 when six emirates united after Britain withdrew from the Trucial States, with a seventh emirate, Ras al-Khaimah, joining the federation in 1972.
+- Falconry remains a living tradition in the UAE, whose national bird is the saker falcon, and it is part of a multinational falconry entry on UNESCO's intangible cultural heritage list that includes the UAE.
+- **History:** The UAE was formed on 2 December 1971 when six emirates united after Britain announced its withdrawal, with a seventh emirate, Ras al-Khaimah, joining the federation on 10 February 1972.
 - **Culture:** The majlis, a traditional gathering space for hosting guests and discussing community matters, remains central to Emirati social and hospitality customs.
 - **Politics:** By long-standing convention, the UAE presidency is held by the ruler of Abu Dhabi, and the Federal National Council combines appointed members with others chosen through a limited electoral college rather than direct nationwide elections.
-- **Local pride:** Pride in the country's rapid transformation from a modest pearling and fishing economy into a global hub, paired with a strong tradition of generous hospitality.
+- **Local pride:** Pride in the Emirates Mars Mission's Hope probe, which entered Mars orbit on 9 February 2021 and made the UAE the first Arab country to reach Mars.
 
 ## United Kingdom
 
 - The United Kingdom has no single written constitution, relying instead on a combination of statutes, common law, and long-standing convention.
-- Greenwich, London serves as the reference point for Greenwich Mean Time, the baseline from which the world's time zones are measured.
-- **History:** The Glorious Revolution of 1688 established the principle of parliamentary sovereignty over the crown, a foundational moment in the UK's constitutional development.
-- **Culture:** Afternoon tea, a custom dating to the mid-19th century, and pub culture as a hub of everyday community life remain distinctive British social traditions.
-- **Politics:** The UK is a constitutional monarchy with a bicameral Parliament; the House of Lords remains partly composed of unelected hereditary peers, a rare arrangement among modern democracies.
-- **Local pride:** Pride in fair-play values like queueing and courtesy, self-deprecating humor, and strong regional and local identities across the UK's four nations, alongside pride in free, universal healthcare through the National Health Service.
+- The Royal Observatory at Greenwich marks the historic Prime Meridian (0 degrees longitude), adopted as the world's zero of longitude at the 1884 International Meridian Conference and the standard until 1984.
+- **History:** The Glorious Revolution of 1688 and the Bill of Rights 1689 strengthened Parliament's power over the monarch, a turning point for parliamentary sovereignty in the UK's constitutional development.
+- **Culture:** Afternoon tea, commonly credited to Anna Russell, Duchess of Bedford, in the 1830s or 1840s, and pub culture as a hub of everyday community life remain distinctive British social traditions.
+- **Politics:** The UK is a constitutional monarchy with a bicameral Parliament; the House of Lords (Hereditary Peers) Act 2026 received royal assent on 18 March 2026 and ended the right of hereditary peers to sit in the Lords on 29 April 2026.
+- **Local pride:** Pride in the National Health Service, launched on 5 July 1948 on the principle of care that is comprehensive, universal and free at the point of delivery.
 
 ## United States
 
 - The U.S. Constitution, ratified in 1788, is the oldest still-functioning written national constitution in the world.
-- The United States has no official language at the federal level, despite English functioning as the de facto language of law and government.
+- In March 2025 Executive Order 14224 designated English the official language of the United States; before that the country had no official language at the federal level.
 - **History:** The American Civil War of 1861 to 1865 ended slavery through the 13th Amendment and remains the deadliest conflict in U.S. history in terms of American lives lost.
-- **Culture:** Thanksgiving, held on the fourth Thursday of November, is a distinctly American secular holiday built around a shared harvest meal.
+- **Culture:** Thanksgiving, fixed by Congress in 1941 as the fourth Thursday of November, is a federal holiday built around a family meal.
 - **Politics:** The U.S. president is chosen through an indirect Electoral College system, in which voters technically select electors rather than casting a direct nationwide vote for president.
-- **Local pride:** Pride in entrepreneurial self-reliance and a strong cultural identity built around ethnic and regional diversity.
+- **Local pride:** Pride in the Apollo program, whose six crewed Moon landings between 1969 and 1972 put twelve Americans on the lunar surface.
 
 ## Uruguay
 
-- In 2013, Uruguay became the first country in the world to fully legalize the production, sale, and distribution of recreational cannabis.
-- Uruguay generates nearly all of its electricity from renewable sources, primarily wind and hydropower, a transition achieved within roughly a decade.
+- In 2013 Uruguay became the first modern country to legalize cannabis, with the state regulating production and sales; pharmacy sales began in 2017.
+- Uruguay meets about 98 percent of its electricity needs from renewable sources, mainly hydropower and wind, after a decade of investment in wind and solar.
 - **History:** Uruguay hosted and won the first-ever FIFA World Cup in 1930, defeating Argentina in the final held in Montevideo.
-- **Culture:** Drinking mate, a caffeinated herbal infusion sipped from a shared gourd through a metal straw, is a near-universal daily ritual practiced openly in public.
-- **Politics:** Uruguay is consistently ranked among Latin America's most stable and least corrupt democracies, with a strong tradition of secular governance rooted in early 20th-century reforms separating church and state.
-- **Local pride:** Pride in a strong culture of civic equality and social welfare, and in the vibrant Afro-Uruguayan candombe drumming and dance tradition that fills the streets each Carnival season.
+- **Culture:** Mate, a caffeinated herbal infusion served from a gourd alongside a thermos, is Uruguay's national drink and a fixture of daily life.
+- **Politics:** Uruguay is classed a full democracy in the Economist Intelligence Unit's 2025 Democracy Index, one of only two in Latin America and the Caribbean, and church and state were formally separated in the late 1910s.
+- **Local pride:** Pride in candombe, the Afro-Uruguayan drumming and dance tradition inscribed by UNESCO in 2009, which fills Montevideo's streets during Carnival and the Llamadas parade.
 
 ## Uzbekistan
 
 - Uzbekistan is one of only two doubly landlocked countries in the world, meaning every neighboring country it borders is itself landlocked.
-- Samarkand and Bukhara were among the most important trading cities on the ancient Silk Road, home to centers of medieval Islamic scholarship and astronomy.
-- **History:** The Aral Sea, once one of the four largest lakes on Earth, has shrunk drastically since the mid-20th century due to Soviet-era irrigation diversion for cotton farming, one of the world's starkest human-caused environmental disasters.
-- **Culture:** Plov, a rice pilaf dish, is considered Uzbekistan's national dish and is often cooked communally in enormous cauldrons for weddings and celebrations.
-- **Politics:** Uzbekistan is a presidential republic; after decades of tightly controlled rule under Islam Karimov until his death in 2016, his successor initiated a notable period of economic and political liberalization.
-- **Local pride:** Pride in warm, generous hospitality expressed through the tradition of laying an abundant dasturkhon (table spread) for guests, and in skilled craftsmanship such as ikat weaving and ceramic artistry passed down through generations.
+- Samarkand and Bukhara became extremely wealthy cities through Silk Road trade.
+- **History:** The Aral Sea, once among the world's four largest lakes, has shrunk drastically since the 1960s after Soviet irrigation projects diverted the rivers feeding it, largely to irrigate cotton.
+- **Culture:** Plov, a rice pilaf dish, is considered Uzbekistan's national dish and is cooked communally over open fire in one huge pot for weddings and holidays, sometimes feeding up to 1,000 people.
+- **Politics:** Uzbekistan is a presidential republic; Islam Karimov, its first president, served until his death in 2016, after which Shavkat Mirziyoyev became president and pursued economic reforms.
+- **Local pride:** Pride in Margilan's silk-making tradition, including the atlas and adras textiles whose techniques are preserved at the Margilan Crafts Development Centre.
 
 ## Vanuatu
 
-- Vanuatu is one of the most linguistically dense countries on Earth, with well over 100 indigenous languages spoken among a population of roughly 300,000 people.
-- Vanuatu sits on the Pacific Ring of Fire and includes several highly active volcanoes, such as Mount Yasur, which has been erupting almost continuously for hundreds of years.
+- Vanuatu has more than 100 indigenous languages spoken among a population of about 300,000 people (300,019 in the 2020 census).
+- Vanuatu has several active volcanoes, and Mount Yasur has been erupting nearly continuously for several hundred years.
 - **History:** Vanuatu (formerly the New Hebrides) was jointly ruled by Britain and France as an unusual dual-administration "Condominium" from 1906 until it gained independence in 1980.
-- **Culture:** On Pentecost Island, men perform Naghol (land diving), leaping from tall wooden towers with vines tied to their ankles in a traditional rite tied to the yam harvest, a practice widely regarded as a precursor to bungee jumping.
+- **Culture:** On Pentecost Island, men perform Naghol (land diving), leaping from wooden towers about 20 to 30 metres high with vines tied to their ankles in a ritual linked to the yam harvest.
 - **Politics:** Vanuatu is a parliamentary republic in which the President serves a largely ceremonial role and is chosen by an electoral college of Parliament members and regional council presidents, while a Prime Minister elected by Parliament holds executive power.
-- **Local pride:** Many ni-Vanuatu take pride in their kastom (custom) system of communal land tenure and village-based subsistence living, which lets most families sustain themselves largely outside the cash economy.
+- **Local pride:** Many ni-Vanuatu take pride in kastom, and the constitution reserves land ownership to indigenous citizens.
 
 ## Vatican City
 
-- Vatican City is the smallest internationally recognized sovereign state in the world, covering only about 0.44 square kilometers.
+- Vatican City is the smallest internationally recognized sovereign state in the world, covering only about 0.49 square kilometers.
 - The Vatican operates its own postal service, radio station, and pharmacy, and its Swiss Guard, founded in 1506, is among the oldest continuously serving military corps in the world.
-- **History:** Vatican City was established as an independent state in 1929 under the Lateran Treaty, an agreement between the Holy See and the Kingdom of Italy that resolved decades of dispute following Italian unification.
-- **Culture:** The Sistine Chapel's ceiling, painted by Michelangelo between 1508 and 1512, remains one of the most studied and reproduced works in Western art history.
-- **Politics:** Vatican City is an absolute elective monarchy: the Pope holds full legislative, executive, and judicial authority and is chosen for life by the College of Cardinals in a secret conclave.
-- **Local pride:** Those who live and work within the Vatican typically take pride in supporting an institution with a religious mission and heritage that has endured for centuries.
+- **History:** Vatican City became an independent state under the Lateran Treaty, signed on 11 February 1929 by the Kingdom of Italy and the Holy See and in effect from 7 June 1929.
+- **Culture:** Michelangelo painted the Sistine Chapel ceiling between 1508 and 1512, and the finished work was unveiled on 31 October 1512.
+- **Politics:** Vatican City is an absolute monarchy in which the Pope, elected by the College of Cardinals in a secret conclave requiring a two-thirds majority, oversees or delegates legislative, executive and judicial functions.
+- **Local pride:** Staff and residents take pride in the Vatican Apostolic Library, formally founded in 1475, which holds about 75,000 codices and 1.1 million printed books.
 
 ## Venezuela
 
-- Venezuela holds the world's largest proven crude oil reserves, exceeding even those of Saudi Arabia according to OPEC figures.
-- Venezuela has produced more Miss Universe and Miss World titleholders than almost any other country, and beauty pageant training is treated as a serious national institution.
-- **History:** Venezuela was among the first Spanish American territories to declare independence, in 1811, though Spanish rule was not definitively ended until the Battle of Carabobo in 1821.
-- **Culture:** Baseball, not soccer, is Venezuela's most popular sport, and the country has sent a steady stream of players to North America's Major League Baseball for generations.
-- **Politics:** Venezuela has a unicameral National Assembly and a presidential system that has been dominated since 1999 by the "Chavista" movement; a rival National Constituent Assembly created in 2017 added a second, contested layer to the country's governance structure.
-- **Local pride:** Venezuelans commonly take pride in their strong tradition of family and community solidarity, which has helped many households cope through years of severe economic hardship.
+- Venezuela has the world's largest known oil reserves.
+- Venezuela has won the Miss Universe title seven times, second only to the United States, and the Miss World title six times.
+- **History:** Venezuela declared independence from Spain on 5 July 1811, and republican forces won the Battle of Carabobo on 24 June 1821 and the Battle of Lake Maracaibo on 24 July 1823.
+- **Culture:** Baseball is Venezuela's leading sport, ahead of football, and more than 400 Venezuelans have played in Major League Baseball since 1939.
+- **Politics:** Venezuela has a unicameral National Assembly and is nominally a federal presidential republic; after Nicolas Maduro was arrested on 3 January 2026, Delcy Rodriguez became interim president, a position not recognized by most opposition parties (as of 2026).
+- **Local pride:** Pride in El Sistema, the national youth orchestra program founded in 1975, which by 2015 official figures counted more than 400 music centres and 700,000 young musicians.
 
 ## Vietnam
 
-- Vietnam is the world's leading exporter of processed cashews and the world's second-largest coffee exporter after Brazil.
-- Vietnam's currency, the đồng, has historically been one of the lowest-valued currencies in the world by nominal exchange rate, making everyday transactions run into the hundreds of thousands.
-- **History:** Vietnam was split at the 17th parallel by the 1954 Geneva Accords after France's defeat at Dien Bien Phu, a division that led to the Vietnam War and ended with reunification in 1975.
-- **Culture:** Phở, a beef or chicken noodle soup that originated in northern Vietnam in the early 20th century, has become one of the country's most internationally recognized culinary exports.
-- **Politics:** Vietnam is a one-party socialist republic led by the Communist Party of Vietnam, with power formally distributed among the General Secretary, the President, and the Prime Minister rather than concentrated in a single office.
-- **Local pride:** Many Vietnamese take pride in a national identity built on resilience and self-reliance, shaped by generations of resisting and recovering from foreign occupation and war.
+- Vietnam is the world's largest producer of cashew nuts and, after Brazil, its second-largest coffee producer (2018 figures).
+- As of February 2026 the Vietnamese dong was the third-lowest valued currency unit in the world, at about 26,000 per US dollar, and its highest banknote is 500,000 dong.
+- **History:** Vietnam was split at the 17th parallel by the 1954 Geneva Accords after France's defeat at Dien Bien Phu, a division that led to the Vietnam War; North Vietnam's victory in 1975 was followed by formal reunification on 2 July 1976.
+- **Culture:** Phở, a noodle soup, emerged in northern Vietnam between 1900 and 1907.
+- **Politics:** Vietnam is a unitary communist state led by the Communist Party of Vietnam; Tô Lâm is listed as both Party General Secretary and President (as of 2026).
+- **Local pride:** Pride in Tết, the Lunar New Year and the most important celebration in Vietnamese culture, when bánh chưng, a square glutinous-rice cake, is a traditional food.
 
 ## Wallis and Futuna
 
 - Wallis and Futuna consists of three main volcanic islands, Wallis (Uvea), Futuna and Alofi, and uses the CFP franc as its currency.
 - More people of Wallisian and Futunan origin live in New Caledonia than in the territory itself.
-- **History:** Wallis and Futuna became a French protectorate in 1887 and was made an overseas territory on 29 July 1961.
-- **Culture:** Kava ceremonies, the formal sharing of the drink in the presence of the traditional chiefs, remain an important part of social and ceremonial life.
-- **Politics:** Wallis and Futuna is a French overseas collectivity with a Territorial Assembly and a French-appointed Prefect, while three traditional kingdoms, Uvea, Sigave and Alo, retain customary authority.
-- **Local pride:** Residents take pride in preserving their customary traditions, Polynesian languages and communal village life under their traditional chiefdoms.
+- **History:** Wallis became a French protectorate in 1887, Futuna's kingdoms followed in 1888, and the islands were made an overseas territory on 29 July 1961.
+- **Culture:** Kava is a popular drink in Wallis and Futuna and serves as a traditional offering in rituals.
+- **Politics:** Wallis and Futuna is a French overseas collectivity with a Territorial Assembly and an Administrator Superior appointed by the French president, while three traditional kingdoms, Uvea, Sigave and Alo, retain customary authority.
+- **Local pride:** Pride in the Wallisian and Futunan languages, which are still the main home languages of most residents (57% and 28% in the 2023 census) alongside French.
 
 ## Western Sahara
 
-- Western Sahara is one of the most sparsely populated territories on Earth, a result of its overwhelmingly arid, desert terrain.
-- A fortified sand-and-stone barrier known as the "berm," stretching well over 2,000 kilometers, divides the territory and ranks among the longest defensive structures ever built.
+- The Bou Craa phosphate mine, worked since 1972, ships rock to the coast on a conveyor belt about 100 kilometres long.
+- Morocco maintains a fortified wall known as the "berm," about 2,700 kilometres long, that divides the territory.
 - **History:** Spain withdrew from its colony in 1975, after which Morocco and Mauritania moved to annex the territory, sparking a war with the Polisario Front independence movement; Mauritania renounced its claim in 1979.
-- **Culture:** The Sahrawi people maintain a traditional nomadic Bedouin heritage, including elaborate multi-round tea ceremonies and an oral poetry tradition composed in the Hassaniya Arabic dialect.
-- **Politics:** Western Sahara is classified by the United Nations as a non-self-governing territory; the Polisario Front's Sahrawi Arab Democratic Republic is recognized by a number of UN member states, while Morocco administers most of the territory de facto, with a UN-monitored ceasefire in place from 1991 until tensions resumed in 2020.
-- **Local pride:** Sahrawi people commonly take pride in their strong communal solidarity and customs of hospitality, values that have helped sustain their shared identity through decades of displacement.
+- **Culture:** Sahrawi-Moorish tribes remained largely nomadic until the early to mid-20th century, and Hassaniya, an Arabic variety, is the Sahrawis' native language.
+- **Politics:** Western Sahara is classified by the United Nations as a non-self-governing territory; the Polisario Front's Sahrawi Arab Democratic Republic has received partial international recognition and is a member of the African Union, while Morocco administers most of the territory (reported as 70-80%), with a ceasefire in place from 1991 until it broke down in November 2020. In October 2025 the UN Security Council referenced Morocco's autonomy proposal as a basis for negotiations.
+- **Local pride:** Pride in the melhfa, the long wrap worn over the head and body by Sahrawi women, which is described as an important symbol of Sahrawi identity.
 
 ## Yemen
 
-- Yemen's remote island of Socotra is so isolated that a third of its plant species, including the umbrella-shaped dragon's blood tree, exist nowhere else on Earth.
-- Yemen's highland region was home to some of the ancient Arabian Peninsula's earliest complex societies, including the Sabaean kingdom associated with the legendary Kingdom of Sheba.
-- **History:** Yemen unified in 1990 when the previously separate states of North Yemen and South Yemen merged, ending decades of divergent Cold War-era political development.
-- **Culture:** Chewing qat, a mildly stimulant leaf, is a widespread daily social custom in Yemen, central to communal gatherings held in dedicated sitting rooms called mafraj.
-- **Politics:** Yemen has been divided by civil conflict since 2014-2015 between the internationally recognized government and the Houthi movement, which controls the capital Sanaa, resulting in two parallel governing authorities.
-- **Local pride:** Many Yemenis take pride in enduring traditions of hospitality and tribal codes of honor that continue to structure daily life despite prolonged conflict.
+- About 37% of the plant species on Yemen's island of Socotra, including the umbrella-crowned dragon's blood tree, exist nowhere else on Earth.
+- Yemen was home to Saba, a thriving commercial kingdom of the Sabaeans thought to be the biblical Sheba.
+- **History:** Yemen unified on 22 May 1990 when North Yemen and South Yemen merged to form the Republic of Yemen.
+- **Culture:** Chewing qat, a mild stimulant leaf, is deeply woven into daily life in Yemen, mainly as a male social activity with conversation and tea, with reported daily use of 60-90% of men.
+- **Politics:** Yemen's internationally recognized executive is the Presidential Leadership Council, formed on 7 April 2022, while the Houthi-run Supreme Political Council governs Houthi-controlled areas; a civil war has been ongoing since 2014-2015.
+- **Local pride:** Pride in al-Ghina al-San'ani, the poetic song tradition of Sanaa, proclaimed a UNESCO Masterpiece of the Oral and Intangible Heritage of Humanity in 2003.
 
 ## Zambia
 
-- Zambia is one of the world's leading copper producers, with copper mining forming the backbone of its economy since the early 20th century.
+- Copper is Zambia's principal export, and its deposits are concentrated in the Copperbelt.
 - Zambia shares Victoria Falls, one of the largest waterfalls on Earth by combined width and height, with neighboring Zimbabwe along the Zambezi River.
 - **History:** Zambia gained independence from Britain in 1964, taking its new name from the Zambezi River after decades as the colony of Northern Rhodesia.
-- **Culture:** The Kuomboka ceremony of the Lozi people, in which the traditional ruler is paddled by canoe from flooded plains to higher ground, is one of Zambia's most celebrated annual cultural festivals.
+- **Culture:** The Kuomboka ceremony celebrates the Litunga, the Lozi king, moving to higher land.
 - **Politics:** Zambia is a presidential republic that has seen multiple peaceful transfers of power between rival parties through elections, notably in 1991 and again in 2021 when incumbent presidents were voted out of office.
 - **Local pride:** Zambians often take pride in the country's cultural diversity and unity, encapsulated in the national motto "One Zambia, One Nation," which reflects harmony among more than 70 ethnic groups.
 
 ## Zimbabwe
 
-- Zimbabwe is named after Great Zimbabwe, the extensive stone ruins of a medieval city built entirely without mortar, one of the largest ancient stone structures in sub-Saharan Africa.
-- Zimbabwe experienced one of the most extreme hyperinflations in recorded history in the late 2000s, at one point issuing a 100-trillion-dollar banknote.
+- Zimbabwe is named after Great Zimbabwe, the medieval stone city whose dry-stone walls were built without mortar and which is the largest stone structure in precolonial Southern Africa.
+- Zimbabwe suffered severe hyperinflation in the late 2000s, peaking in November 2008, and issued a 100-trillion-dollar banknote in January 2009.
 - **History:** Zimbabwe achieved independence in 1980 following a prolonged guerrilla war against the white-minority Rhodesian government, concluded by the 1979 Lancaster House Agreement.
-- **Culture:** Shona stone sculpture, a modern carving tradition rooted in local spiritual and folkloric themes, has earned international recognition as one of Zimbabwe's most distinctive artistic exports.
-- **Politics:** Zimbabwe is a presidential republic with a bicameral parliament; the ruling ZANU-PF party has held power continuously since independence in 1980, aside from a coalition government formed with the opposition from 2009 to 2013.
-- **Local pride:** Zimbabweans commonly take pride in the country's historically high literacy rate, one of the highest in Africa, and in a widely shared reputation for resourcefulness and resilience through periods of economic hardship.
+- **Culture:** Shona stone sculpture, a modern carving movement that began in the 1950s and treats stone as having a spirit of its own, has been exhibited internationally, including at the Museum of Modern Art in New York.
+- **Politics:** Zimbabwe is a presidential republic with a bicameral parliament, and ZANU-PF has held power since independence in 1980 apart from a 2009-2013 power-sharing government with the opposition; per Wikipedia, 2026 constitutional amendments extended terms from five to seven years and shifted future presidential elections to a joint session of Parliament.
+- **Local pride:** Zimbabweans take pride in sadza, the white-maize meal staple eaten with nyama (meat) and stews, relishes or vegetables.
